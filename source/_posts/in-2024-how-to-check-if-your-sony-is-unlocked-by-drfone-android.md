@@ -1,7 +1,7 @@
 ---
 title: In 2024, How To Check if Your Sony Is Unlocked
-date: 2024-04-06T06:19:08.450Z
-updated: 2024-04-07T06:19:08.450Z
+date: 2024-04-06T06:44:57.976Z
+updated: 2024-04-07T06:44:57.976Z
 tags: 
   - unlock
   - sim unlock
