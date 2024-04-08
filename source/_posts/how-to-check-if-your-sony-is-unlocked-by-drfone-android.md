@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your Sony Is Unlocked
-date: 2024-04-06T06:44:57.932Z
-updated: 2024-04-07T06:44:57.932Z
+date: 2024-04-07T21:42:49.345Z
+updated: 2024-04-08T21:42:49.345Z
 tags: 
   - unlock
   - sim unlock
@@ -335,41 +335,41 @@ You will be directed to a payment page where you can make your payment.  The co
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://sim-unlock.techidaily.com/how-to-factory-unlock-your-telstra-apple-iphone-11-pro-max-by-drfone-ios/" target="_blank" rel="noopener"><u>How To Factory Unlock Your Telstra Apple iPhone 11 Pro Max</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-vivo-y27s-phone-by-drfone-android/" target="_blank" rel="noopener"><u>Top IMEI Unlokers for Your Vivo Y27s Phone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-oppo-find-x6-by-drfone-android/" target="_blank" rel="noopener"><u>Three Ways to Sim Unlock Oppo Find X6</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-se-2022-3-ways-to-unlock-by-drfone-ios/" target="_blank" rel="noopener"><u>How To Unlock iPhone SE (2022) 3 Ways To Unlock</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-factory-unlock-your-telstra-iphone-11-pro-max-by-drfone-ios/" target="_blank" rel="noopener"><u>How To Factory Unlock Your Telstra iPhone 11 Pro Max</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-apple-iphone-14-plus-by-drfone-ios/" target="_blank" rel="noopener"><u>Top 11 Free Apps to Check IMEI on Apple iPhone 14 Plus</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-htc-u23-phone-and-remove-locked-screen-by-drfone-android/" target="_blank" rel="noopener"><u>In 2024, Android Unlock Code Sim Unlock Your HTC U23 Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-apple-iphone-xs-for-free-by-drfone-ios/" target="_blank" rel="noopener"><u>In 2024, How To Unlock Cricket Apple iPhone XS for Free</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-oneplus-12r-by-drfone-android/" target="_blank" rel="noopener"><u>Three Ways to Sim Unlock OnePlus 12R</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-best-solutions-for-htc-network-unlock-by-drfone-android/" target="_blank" rel="noopener"><u>In 2024, Best Solutions for HTC Network Unlock</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-nokia-105-classic-phone-and-remove-locked-screen-by-drfone-android/" target="_blank" rel="noopener"><u>Android Unlock Code Sim Unlock Your Nokia 105 Classic Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-y78-5g-is-unlocked-by-drfone-android/" target="_blank" rel="noopener"><u>How To Check if Your Vivo Y78 5G Is Unlocked</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-sony-xperia-10-v-without-puk-codes-by-drfone-android/" target="_blank" rel="noopener"><u>How To Unlock SIM Cards Of Sony Xperia 10 V Without PUK Codes</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tips-and-tricks-to-tell-if-your-apple-iphone-15-pro-max-is-unlocked-by-drfone-ios/" target="_blank" rel="noopener"><u>In 2024, Tips And Tricks To Tell if Your Apple iPhone 15 Pro Max Is Unlocked</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-s24-phone-hassle-free-by-drfone-android/" target="_blank" rel="noopener"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy S24 Phone Hassle-Free</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-remove-apple-iphone-6-sim-lock-by-drfone-ios/" target="_blank" rel="noopener"><u>How to Remove Apple iPhone 6 SIM Lock?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-oneplus-nord-n30-se-phones-by-drfone-android/" target="_blank" rel="noopener"><u>In 2024, Top 11 Free Apps to Check IMEI on OnePlus Nord N30 SE Phones</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-remove-apple-iphone-se-2020-sim-lock-by-drfone-ios/" target="_blank" rel="noopener"><u>How to Remove Apple iPhone SE (2020) SIM Lock?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-nokia-c12-plus-android-sim-unlock-apk-by-drfone-android/" target="_blank" rel="noopener"><u>In 2024, Top 10 Nokia C12 Plus Android SIM Unlock APK</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-ultimate-guide-to-unlocking-your-iphone-xr-on-metropcs-by-drfone-ios/" target="_blank" rel="noopener"><u>The Ultimate Guide to Unlocking Your iPhone XR on MetroPCS</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-samsung-galaxy-s24-device-top-5-picks-to-remove-android-locks-by-drfone-android/" target="_blank" rel="noopener"><u>The Best Android Unlock Software For Samsung Galaxy S24 Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-best-solutions-for-lava-network-unlock-by-drfone-android/" target="_blank" rel="noopener"><u>In 2024, Best Solutions for Lava Network Unlock</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-vivo-t2-5g-by-drfone-android/" target="_blank" rel="noopener"><u>In 2024, Three Ways to Sim Unlock Vivo T2 5G</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-oppo-a18-android-sim-unlock-apk-by-drfone-android/" target="_blank" rel="noopener"><u>In 2024, Top 10 Oppo A18 Android SIM Unlock APK</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-htc-u23-device-by-drfone-android/" target="_blank" rel="noopener"><u>The 6 Best SIM Unlock Services That Actually Work On Your HTC U23 Device</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-to-do-if-your-apple-iphone-6s-plus-has-bad-esn-or-blacklisted-imei-by-drfone-ios/" target="_blank" rel="noopener"><u>What to do if your Apple iPhone 6s Plus has bad ESN or blacklisted IMEI?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-remove-apple-iphone-15-sim-lock-by-drfone-ios/" target="_blank" rel="noopener"><u>In 2024, How to Remove Apple iPhone 15 SIM Lock?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/" target="_blank" rel="noopener"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Xiaomi Redmi 13C | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/" target="_blank" rel="noopener"><u>How to Simulate GPS Movement in AR games On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-nokia-c22-drfone-by-drfone-virtual-android/" target="_blank" rel="noopener"><u>In 2024, What Legendaries Are In Pokemon Platinum On Nokia C22? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-samsung-galaxy-a34-5g-phone-that-is-locked-by-drfone-android/" target="_blank" rel="noopener"><u>In 2024, How to Reset a Samsung Galaxy A34 5G Phone that is Locked?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-oppo-a59-5g-drfone-by-drfone-virtual-android/" target="_blank" rel="noopener"><u>How to Find iSpoofer Pro Activation Key On Oppo A59 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-poco-f5-pro-5g-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/" target="_blank" rel="noopener"><u>In 2024, How to Transfer Contacts from Poco F5 Pro 5G To Phone | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-y77t-drfone-by-drfone-virtual-android/" target="_blank" rel="noopener"><u>How Do I Stop Someone From Tracking My Vivo Y77t? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-identify-some-outdated-hardware-drivers-with-windows-device-manager-on-windows-11107-by-drivereasy-guide/" target="_blank" rel="noopener"><u>How to identify some outdated hardware drivers with Windows Device Manager on Windows 11/10/7</u></a></li>
-<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-lava-yuva-3-drfone-by-drfone-reset-android-reset-android/" target="_blank" rel="noopener"><u>The Easiest Methods to Hard Reset Lava Yuva 3 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-realme-gt-5-pro-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/" target="_blank" rel="noopener"><u>Guide How To Unbrick a Bricked Realme GT 5 Pro Phone | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-factory-unlock-your-telstra-apple-iphone-11-pro-max-by-drfone-ios/" ><u>How To Factory Unlock Your Telstra Apple iPhone 11 Pro Max</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-vivo-y27s-phone-by-drfone-android/" ><u>Top IMEI Unlokers for Your Vivo Y27s Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-oppo-find-x6-by-drfone-android/" ><u>Three Ways to Sim Unlock Oppo Find X6</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-se-2022-3-ways-to-unlock-by-drfone-ios/" ><u>How To Unlock iPhone SE (2022) 3 Ways To Unlock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-factory-unlock-your-telstra-iphone-11-pro-max-by-drfone-ios/" ><u>How To Factory Unlock Your Telstra iPhone 11 Pro Max</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-apple-iphone-14-plus-by-drfone-ios/" ><u>Top 11 Free Apps to Check IMEI on Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-htc-u23-phone-and-remove-locked-screen-by-drfone-android/" ><u>In 2024, Android Unlock Code Sim Unlock Your HTC U23 Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-apple-iphone-xs-for-free-by-drfone-ios/" ><u>In 2024, How To Unlock Cricket Apple iPhone XS for Free</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-oneplus-12r-by-drfone-android/" ><u>Three Ways to Sim Unlock OnePlus 12R</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-best-solutions-for-htc-network-unlock-by-drfone-android/" ><u>In 2024, Best Solutions for HTC Network Unlock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-nokia-105-classic-phone-and-remove-locked-screen-by-drfone-android/" ><u>Android Unlock Code Sim Unlock Your Nokia 105 Classic Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-y78-5g-is-unlocked-by-drfone-android/" ><u>How To Check if Your Vivo Y78 5G Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-sony-xperia-10-v-without-puk-codes-by-drfone-android/" ><u>How To Unlock SIM Cards Of Sony Xperia 10 V Without PUK Codes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tips-and-tricks-to-tell-if-your-apple-iphone-15-pro-max-is-unlocked-by-drfone-ios/" ><u>In 2024, Tips And Tricks To Tell if Your Apple iPhone 15 Pro Max Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-s24-phone-hassle-free-by-drfone-android/" ><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy S24 Phone Hassle-Free</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-remove-apple-iphone-6-sim-lock-by-drfone-ios/" ><u>How to Remove Apple iPhone 6 SIM Lock?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-oneplus-nord-n30-se-phones-by-drfone-android/" ><u>In 2024, Top 11 Free Apps to Check IMEI on OnePlus Nord N30 SE Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-remove-apple-iphone-se-2020-sim-lock-by-drfone-ios/" ><u>How to Remove Apple iPhone SE (2020) SIM Lock?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-nokia-c12-plus-android-sim-unlock-apk-by-drfone-android/" ><u>In 2024, Top 10 Nokia C12 Plus Android SIM Unlock APK</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-ultimate-guide-to-unlocking-your-iphone-xr-on-metropcs-by-drfone-ios/" ><u>The Ultimate Guide to Unlocking Your iPhone XR on MetroPCS</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-samsung-galaxy-s24-device-top-5-picks-to-remove-android-locks-by-drfone-android/" ><u>The Best Android Unlock Software For Samsung Galaxy S24 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-best-solutions-for-lava-network-unlock-by-drfone-android/" ><u>In 2024, Best Solutions for Lava Network Unlock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-vivo-t2-5g-by-drfone-android/" ><u>In 2024, Three Ways to Sim Unlock Vivo T2 5G</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-oppo-a18-android-sim-unlock-apk-by-drfone-android/" ><u>In 2024, Top 10 Oppo A18 Android SIM Unlock APK</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-htc-u23-device-by-drfone-android/" ><u>The 6 Best SIM Unlock Services That Actually Work On Your HTC U23 Device</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-to-do-if-your-apple-iphone-6s-plus-has-bad-esn-or-blacklisted-imei-by-drfone-ios/" ><u>What to do if your Apple iPhone 6s Plus has bad ESN or blacklisted IMEI?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-remove-apple-iphone-15-sim-lock-by-drfone-ios/" ><u>In 2024, How to Remove Apple iPhone 15 SIM Lock?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/" ><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/" ><u>How to Simulate GPS Movement in AR games On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-nokia-c22-drfone-by-drfone-virtual-android/" ><u>In 2024, What Legendaries Are In Pokemon Platinum On Nokia C22? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-samsung-galaxy-a34-5g-phone-that-is-locked-by-drfone-android/" ><u>In 2024, How to Reset a Samsung Galaxy A34 5G Phone that is Locked?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-oppo-a59-5g-drfone-by-drfone-virtual-android/" ><u>How to Find iSpoofer Pro Activation Key On Oppo A59 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-poco-f5-pro-5g-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/" ><u>In 2024, How to Transfer Contacts from Poco F5 Pro 5G To Phone | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-y77t-drfone-by-drfone-virtual-android/" ><u>How Do I Stop Someone From Tracking My Vivo Y77t? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-some-outdated-hardware-drivers-with-windows-device-manager-on-windows-11107-by-drivereasy-guide/" ><u>How to identify some outdated hardware drivers with Windows Device Manager on Windows 11/10/7</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-lava-yuva-3-drfone-by-drfone-reset-android-reset-android/" ><u>The Easiest Methods to Hard Reset Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-realme-gt-5-pro-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/" ><u>Guide How To Unbrick a Bricked Realme GT 5 Pro Phone | Dr.fone</u></a></li>
 </ul></div>
