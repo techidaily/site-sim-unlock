@@ -1,4 +1,4 @@
-Sitemap: https://sim-unlock.techidaily.com/sitemap.txt
+Sitemap: https://sim-unlock.techidaily.com/sitemap.xml
 User-agent: Googlebot
 Disallow:
 
