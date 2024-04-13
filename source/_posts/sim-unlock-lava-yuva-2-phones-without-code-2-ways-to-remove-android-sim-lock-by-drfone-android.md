@@ -314,6 +314,12 @@ If your device freezes during the unlocking process it typically means that you 
 
 There are some LG models that cannot be unlocked. These models include LG U300, LG U310, LG U8180, LG U8330, LG U8120, LG U8360, LG U8380, LGU880, and LG U890. If your device is one of these it can't be unlocked by your carrier. You may need to look into other ways of unlocking your device.
 
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"

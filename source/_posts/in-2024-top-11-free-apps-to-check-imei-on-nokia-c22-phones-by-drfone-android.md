@@ -483,6 +483,12 @@ For example, in Australia, an unlocked Nokia C22 will cost around $499 from any 
 
 Now that you know the three ways of unlocking your Nokia C22, all you need to do is find one that is most compatible with you. Just remember to think of everything through and carefully. Most importantly, if you have a locked device, always seek advice from your carrier to see if this is possible.
 
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
