@@ -1,7 +1,7 @@
 ---
 title: In 2024, How To Check if Your Sony Xperia 5 V Is Unlocked
-date: 2024-04-12T00:43:17.771Z
-updated: 2024-04-13T00:43:17.771Z
+date: 2024-04-30T18:17:38.003Z
+updated: 2024-05-01T18:17:38.003Z
 tags: 
   - unlock
   - sim unlock
@@ -590,3 +590,4 @@ As a crux, an unlocked phone is a better choice than a locked phone. We would pe
 <li><a href="https://techidaily.com/full-guide-to-hard-reset-your-itel-a60s-drfone-by-drfone-reset-android-reset-android/" ><u>Full Guide to Hard Reset Your Itel A60s | Dr.fone</u></a></li>
 <li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-vivo-y78t-drfone-by-drfone-virtual-android/" ><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Vivo Y78t | Dr.fone</u></a></li>
 </ul></div>
+

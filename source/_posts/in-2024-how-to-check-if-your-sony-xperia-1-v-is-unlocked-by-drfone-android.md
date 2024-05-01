@@ -1,7 +1,7 @@
 ---
 title: In 2024, How To Check if Your Sony Xperia 1 V Is Unlocked
-date: 2024-04-12T00:43:16.379Z
-updated: 2024-04-13T00:43:16.379Z
+date: 2024-04-30T18:17:37.857Z
+updated: 2024-05-01T18:17:37.857Z
 tags: 
   - unlock
   - sim unlock
@@ -378,3 +378,4 @@ Unlock Your Sony Xperia 1 V Device in a Flash
 <li><a href="https://android-unlock.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-vivo-x100-phone-by-drfone-android/" ><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Vivo X100 Phone</u></a></li>
 <li><a href="https://howto.techidaily.com/xiaomi-13-ultra-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/" ><u>Xiaomi 13 Ultra Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 11 Free Apps to Check IMEI on Sony Xperia 5 V Phones
-date: 2024-04-12T00:43:18.683Z
-updated: 2024-04-13T00:43:18.683Z
+date: 2024-04-30T18:17:38.015Z
+updated: 2024-05-01T18:17:38.015Z
 tags: 
   - unlock
   - sim unlock
@@ -586,3 +586,4 @@ Once you have the proper PUK to [unlock your SIM card](https://tools.techidaily.
 <li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-xcover-7-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Samsung Galaxy XCover 7</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-poco-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Poco</u></a></li>
 </ul></div>
+

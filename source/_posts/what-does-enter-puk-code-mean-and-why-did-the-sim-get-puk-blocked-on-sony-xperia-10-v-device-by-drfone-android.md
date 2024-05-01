@@ -1,7 +1,7 @@
 ---
 title: What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Sony Xperia 10 V Device
-date: 2024-04-12T00:43:16.916Z
-updated: 2024-04-13T00:43:16.916Z
+date: 2024-04-30T18:17:37.921Z
+updated: 2024-05-01T18:17:37.921Z
 tags: 
   - unlock
   - sim unlock
@@ -443,3 +443,4 @@ It is very important to note that by unlocking your device you are breaching the
 <li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-oneplus-ace-2-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/" ><u>In 2024, 5 Ways to Transfer Music from OnePlus Ace 2 to Other Android Devices Easily | Dr.fone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/trouble-with-apple-iphone-12-mini-swipe-up-try-these-11-solutions-by-drfone-ios/" ><u>Trouble with Apple iPhone 12 mini Swipe-Up? Try These 11 Solutions</u></a></li>
 </ul></div>
+

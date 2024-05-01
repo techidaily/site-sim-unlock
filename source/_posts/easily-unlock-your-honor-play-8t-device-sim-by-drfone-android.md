@@ -342,3 +342,4 @@ Once you have the proper PUK to [unlock your SIM card](https://tools.techidaily.
 <li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-tecno-spark-20-proplus-by-fonelab-android-recover-messages/" ><u>How To  Restore Missing Messages Files from Tecno Spark 20 Pro+</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/how-to-bypass-tecno-pova-5-s-lock-screen-pattern-pin-or-password-by-drfone-android-unlock-android-unlock/" ><u>How to bypass Tecno Pova 5’s lock screen pattern, PIN or password</u></a></li>
 </ul></div>
+

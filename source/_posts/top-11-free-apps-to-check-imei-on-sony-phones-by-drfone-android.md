@@ -1,7 +1,7 @@
 ---
 title: Top 11 Free Apps to Check IMEI on Sony Phones
-date: 2024-04-12T00:43:16.202Z
-updated: 2024-04-13T00:43:16.202Z
+date: 2024-04-30T18:17:37.842Z
+updated: 2024-05-01T18:17:37.842Z
 tags: 
   - unlock
   - sim unlock
@@ -497,3 +497,4 @@ Step 3. The system will send you the unlock code and instruction email shortly. 
 <li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-vivo-g2-with-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/" ><u>How to Repair corrupt MP4 and AVI files of Vivo G2 with Video Repair Utility on Mac?</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-realme-narzo-60-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/" ><u>How to Transfer Data After Switching From Realme Narzo 60 5G to Latest Samsung | Dr.fone</u></a></li>
 </ul></div>
+

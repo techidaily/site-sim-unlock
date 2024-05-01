@@ -1,7 +1,7 @@
 ---
 title: Network Locked SIM Card Inserted On Your HTC U23 Pro Phone? Unlock It Now
-date: 2024-04-12T00:44:21.096Z
-updated: 2024-04-13T00:44:21.096Z
+date: 2024-04-30T18:17:38.763Z
+updated: 2024-05-01T18:17:38.763Z
 tags: 
   - unlock
   - sim unlock
@@ -476,3 +476,4 @@ Once you have the proper PUK to [unlock your SIM card](https://tools.techidaily.
 <li><a href="https://techidaily.com/how-to-factory-reset-xiaomi-redmi-note-12r-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Xiaomi Redmi Note 12R in 5 Easy Ways | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-tecno-pova-6-pro-5g-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Tecno Pova 6 Pro 5G to Other Android devices | Dr.fone</u></a></li>
 </ul></div>
+

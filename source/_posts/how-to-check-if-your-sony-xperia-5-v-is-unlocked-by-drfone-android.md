@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your Sony Xperia 5 V Is Unlocked
-date: 2024-04-12T00:43:17.470Z
-updated: 2024-04-13T00:43:17.470Z
+date: 2024-04-30T18:17:37.969Z
+updated: 2024-05-01T18:17:37.969Z
 tags: 
   - unlock
   - sim unlock
@@ -511,3 +511,4 @@ You will also need the IMEI number if you want to unlock your phone and use it o
 <li><a href="https://change-location.techidaily.com/ipogo-will-be-the-new-ispoofer-on-vivo-y36-drfone-by-drfone-virtual-android/" ><u>iPogo will be the new iSpoofer On Vivo Y36? | Dr.fone</u></a></li>
 <li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/" ><u>In 2024, How to Change/Add Location Filters on Snapchat For your Apple iPhone 13 Pro | Dr.fone</u></a></li>
 </ul></div>
+

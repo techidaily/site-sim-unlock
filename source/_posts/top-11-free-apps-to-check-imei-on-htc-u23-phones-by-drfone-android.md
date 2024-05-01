@@ -1,7 +1,7 @@
 ---
 title: Top 11 Free Apps to Check IMEI on HTC U23 Phones
-date: 2024-04-12T00:44:07.961Z
-updated: 2024-04-13T00:44:07.961Z
+date: 2024-04-30T18:17:38.632Z
+updated: 2024-05-01T18:17:38.632Z
 tags: 
   - unlock
   - sim unlock
@@ -562,3 +562,4 @@ Once you have the proper PUK to [unlock your SIM card](https://tools.techidaily.
 <li><a href="https://techidaily.com/remove-lock-screen-without-password-nubia-z60-ultra-by-drfone-android-unlock-android-unlock/"><u>Remove Lock Screen without Password(Nubia Z60 Ultra)</u></a></li>
 <li><a href="https://techidaily.com/hard-reset-oneplus-nord-3-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset OnePlus Nord 3 5G in 3 Efficient Ways | Dr.fone</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: In 2024, How To Check if Your Motorola Edge 40 Is Unlocked
-date: 2024-04-04 22:11:20
-updated: 2024-04-07 20:17:32
+date: 2024-04-30T18:21:38.336Z
+updated: 2024-05-01T18:21:38.336Z
 tags: 
   - unlock
   - sim unlock
@@ -501,4 +501,94 @@ As a crux, an unlocked phone is a better choice than a locked phone. We would pe
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-apple-iphone-8-online-without-jailbreak-by-drfone-ios/"><u>How to Unlock SIM Card on Apple iPhone 8 online without jailbreak</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-samsung-galaxy-s23plus-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Samsung Galaxy S23+ Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-vivo-t2x-5g-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Vivo T2x 5G Device</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-samsung-galaxy-m14-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Samsung Galaxy M14 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-oppo-reno-10-pro-5g-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Oppo Reno 10 Pro 5G Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-verizon-apple-iphone-6-by-drfone-ios/"><u>How to Unlock Verizon Apple iPhone 6</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-samsung-galaxy-a15-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your Samsung Galaxy A15 5G Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-vivo-s17-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Vivo S17 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-motorola-razr-40-ultra-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Motorola Razr 40 Ultra IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-samsung-galaxy-a05-device-sim-by-drfone-android/"><u>Easily Unlock Your Samsung Galaxy A05 Device SIM</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-lava-yuva-3-pro-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Lava Yuva 3 Pro Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-vivo-v27e-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Vivo V27e Device</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-lava-blaze-2-pro-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Lava Blaze 2 Pro Android SIM Unlock APK</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-samsung-galaxy-f14-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Samsung Galaxy F14 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-oppo-a78-5g-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Oppo A78 5G Device</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-apple-iphone-xs-online-without-jailbreak-by-drfone-ios/"><u>In 2024, How to Unlock SIM Card on Apple iPhone XS online without jailbreak</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-nokia-c12-pro-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Nokia C12 Pro Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-xiaomi-redmi-note-12-pro-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Xiaomi Redmi Note 12 Pro 5G online without jailbreak</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-sony-xperia-10-v-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Sony Xperia 10 V Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-samsung-galaxy-a05s-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Samsung Galaxy A05s Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-honor-x50-gt-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Honor X50 GT Without PUK Codes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-gionee-f3-pro-device-sim-by-drfone-android/"><u>Easily Unlock Your Gionee F3 Pro Device SIM</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-apple-iphone-15-and-android-phones-by-drfone-ios/"><u>Top IMEI Unlokers for Apple iPhone 15 and Android Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-iphone-x-for-free-by-drfone-ios/"><u>In 2024, How To Unlock Cricket iPhone X for Free</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-oppo-a38-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Oppo A38 Device</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-iphone-11-pro-max-and-android-phones-by-drfone-ios/"><u>In 2024, Top IMEI Unlokers for iPhone 11 Pro Max and Android Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-6s-plus-official-method-to-unlock-your-apple-iphone-6s-plus-by-drfone-ios/"><u>How To Unlock Apple iPhone 6s Plus Official Method to Unlock Your Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-xiaomi-13t-pro-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Xiaomi 13T Pro online without jailbreak</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-vivo-x90s-by-drfone-android/"><u>Three Ways to Sim Unlock Vivo X90S</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-oppo-reno-10-pro-5g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Oppo Reno 10 Pro 5G Device SIM</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-samsung-galaxy-s23-tactical-edition-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Samsung Galaxy S23 Tactical Edition Phone? Unlock It Now</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-nokia-g310-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Nokia G310 Android SIM Unlock APK</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-samsung-galaxy-a15-4g-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Samsung Galaxy A15 4G</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-oppo-a56s-5g-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Oppo A56s 5G Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-itel-s23plus-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Itel S23+ Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-vivo-s17t-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Vivo S17t Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-oppo-a79-5g-by-drfone-android/"><u>Three Ways to Sim Unlock Oppo A79 5G</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-meizu-21-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Meizu 21 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-vivo-v29e-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Vivo V29e Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-asus-rog-phone-8-pro-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Asus ROG Phone 8 Pro</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-samsung-galaxy-a14-4g-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Samsung Galaxy A14 4G</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-oppo-a79-5g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Oppo A79 5G Device SIM</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-v30-is-unlocked-by-drfone-android/"><u>How To Check if Your Vivo V30 Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-do-i-sim-unlock-my-apple-iphone-15-pro-by-drfone-ios/"><u>How Do I SIM Unlock My Apple iPhone 15 Pro?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-y100i-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo Y100i Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-vivo-g2-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Vivo G2 Quickly | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-samsung-galaxy-f14-5g-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Samsung Galaxy F14 5G Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-oneplus-12-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your OnePlus 12? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-from-iphone-7-plus-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked From iPhone 7 Plus?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-files-for-moto-g-5g-2023-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD .mts files for Moto G 5G (2023)? </u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-12-pro-to-iphone-81111-pro-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer from Apple iPhone 12 Pro to iPhone 8/11/11 Pro | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-oppo-a2-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Oppo A2</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-best-ways-to-add-photos-to-tik-tok-video/"><u>Updated In 2024, Best Ways to Add Photos to Tik Tok Video</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-are-you-looking-to-make-subscribe-channel-graphics-here-is-a-complete-guide-on-how-to-make-one-on-your-own/"><u>Updated Are You Looking to Make Subscribe Channel Graphics? Here Is a Complete Guide on How to Make One on Your Own</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlock-motorola-moto-g34-5g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Motorola Moto G34 5G Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-still-using-pattern-locks-with-vivo-v27e-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Vivo V27e? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-samsung-galaxy-xcover-7-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Samsung Galaxy XCover 7 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-samsung-galaxy-a54-5g-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Samsung Galaxy A54 5G</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Oppo Find X6? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-nokia-c210-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Samsung Galaxy M34 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/latest-top-darth-vader-voice-generators-for-all-platforms-for-2024/"><u>Latest Top Darth Vader Voice Generators for All Platforms for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/1713950951643-making-creative-and-engaging-youtube-videos-is-now-easy-with-several-tools-now-youtube-also-offers-you-its-own-built-in-video-editor-through-which-you-can-e/"><u>Making Creative and Engaging Youtube Videos Is Now Easy with Several Tools. Now, YouTube Also Offers You Its Own Built-In Video Editor Through Which You Can Edit and Enhance the Video Quality for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-11-pro-without-passcode-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 11 Pro Without Passcode? 4 Easy Methods</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-nubia-z50s-pro-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Nubia Z50S Pro Users</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/resolve-your-apple-iphone-se-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>Resolve Your Apple iPhone SE Keeps Asking for Outlook Password | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Motorola Moto G73 5G? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Oppo F23 5G? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-music-from-a70-by-fonelab-android-recover-music/"><u>How to retrieve erased music from A70</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-infinix-smart-8-plus-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Infinix Smart 8 Plus Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/some-mp4-won-t-play-on-my-xiaomi-13-ultra-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Some MP4 won't play on my Xiaomi 13 Ultra</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/9-best-phone-monitoring-apps-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>9 Best Phone Monitoring Apps for Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-infinix-hot-30-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Infinix Hot 30 5G</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-honor-x50-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Honor X50 Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-samsung-galaxy-a14-4g-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Samsung Galaxy A14 4G by Name | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-tecno-camon-30-pro-5g-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Tecno Camon 30 Pro 5G</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-xiaomi-redmi-note-13-proplus-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Xiaomi Redmi Note 13 Pro+ 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/lock-your-nokia-c12-pro-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Nokia C12 Pro Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-realme-gt-5-pro-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Realme GT 5 Pro Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-best-mac-mp3-conversion-tools-top-picks/"><u>Updated 2024 Approved Best Mac MP3 Conversion Tools Top Picks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-vivo-y36i-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Vivo Y36i</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How to Unlock SIM Card on Sony Xperia 5 V online without jailbreak
-date: 2024-04-12T00:43:17.506Z
-updated: 2024-04-13T00:43:17.506Z
+date: 2024-04-30T18:17:37.979Z
+updated: 2024-05-01T18:17:37.979Z
 tags: 
   - unlock
   - sim unlock
@@ -426,3 +426,4 @@ Now that you know the three ways of unlocking your Sony Xperia 5 V, all you need
 <li><a href="https://techidaily.com/how-to-reset-a-samsung-galaxy-s23-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/" ><u>How to Reset a Samsung Galaxy S23 Phone That Is Locked | Dr.fone</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-samsung-galaxy-a34-5g-phones-drfone-by-drfone-android/" ><u>How to Mirror PC Screen to Samsung Galaxy A34 5G Phones? | Dr.fone</u></a></li>
 </ul></div>
+
