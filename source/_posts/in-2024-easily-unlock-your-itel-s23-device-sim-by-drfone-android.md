@@ -399,3 +399,4 @@ Any of the methods above can work to get around the prohibition against using ot
 <li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-itel-p40plus-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Itel P40+ Screen to PC with Chromecast | Dr.fone</u></a></li>
 </ul></div>
 
+

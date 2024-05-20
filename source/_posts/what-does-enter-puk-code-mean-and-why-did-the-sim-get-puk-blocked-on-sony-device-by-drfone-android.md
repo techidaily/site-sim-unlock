@@ -1,7 +1,7 @@
 ---
 title: What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Sony Device
-date: 2024-04-30T18:17:37.832Z
-updated: 2024-05-01T18:17:37.832Z
+date: 2024-05-19T11:25:49.264Z
+updated: 2024-05-20T11:25:49.264Z
 tags: 
   - unlock
   - sim unlock
@@ -364,4 +364,5 @@ You will be directed to a payment page where you can make your payment.  The co
 <li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-itel-a60s-drfone-by-drfone-virtual-android/" ><u>A Detailed VPNa Fake GPS Location Free Review On Itel A60s | Dr.fone</u></a></li>
 <li><a href="https://techidaily.com/how-to-hard-reset-vivo-x100-pro-without-password-drfone-by-drfone-reset-android-reset-android/" ><u>How to Hard Reset Vivo X100 Pro Without Password | Dr.fone</u></a></li>
 </ul></div>
+
 

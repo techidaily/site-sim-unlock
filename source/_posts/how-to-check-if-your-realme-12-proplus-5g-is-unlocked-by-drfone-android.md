@@ -538,3 +538,4 @@ You will also need the IMEI number if you want to unlock your phone and use it o
 <li><a href="https://iphone-unlock.techidaily.com/disabling-iphone-12-mini-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling iPhone 12 mini Parental Restrictions With/Without Password | Dr.fone</u></a></li>
 </ul></div>
 
+

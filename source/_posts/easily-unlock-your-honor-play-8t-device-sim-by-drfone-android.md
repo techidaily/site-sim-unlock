@@ -343,3 +343,4 @@ Once you have the proper PUK to [unlock your SIM card](https://tools.techidaily.
 <li><a href="https://phone-solutions.techidaily.com/how-to-bypass-tecno-pova-5-s-lock-screen-pattern-pin-or-password-by-drfone-android-unlock-android-unlock/" ><u>How to bypass Tecno Pova 5’s lock screen pattern, PIN or password</u></a></li>
 </ul></div>
 
+

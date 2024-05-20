@@ -390,3 +390,4 @@ _**Tips:** Are you searching for a powerful Screen Unlock tool? No worries as [D
 <li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-vivo-y36-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Vivo Y36 to Protect Your Individual Information</u></a></li>
 </ul></div>
 
+

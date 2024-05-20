@@ -1,7 +1,7 @@
 ---
 title: In 2024, How To Check if Your Lava Yuva 3 Is Unlocked
-date: 2024-04-30T18:19:14.931Z
-updated: 2024-05-01T18:19:14.931Z
+date: 2024-05-19T11:26:03.579Z
+updated: 2024-05-20T11:26:03.579Z
 tags: 
   - unlock
   - sim unlock
@@ -420,4 +420,5 @@ Once you have the proper PUK to [unlock your SIM card](https://tools.techidaily.
 <li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-itel-a60-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Itel A60 | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-lava-get-deleted-phone-number-back-with-ease-and-safety-by-fonelab-android-recover-contacts/"><u>How to Lava Get Deleted Phone Number Back with Ease and Safety</u></a></li>
 </ul></div>
+
 

@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your Lava Agni 2 5G Is Unlocked
-date: 2024-04-30T18:18:09.100Z
-updated: 2024-05-01T18:18:09.100Z
+date: 2024-05-19T11:25:59.981Z
+updated: 2024-05-20T11:25:59.981Z
 tags: 
   - unlock
   - sim unlock
@@ -350,4 +350,5 @@ There are some LG models that cannot be unlocked. These models include LG U300, 
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-poco-f5-pro-5g-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Poco F5 Pro 5G Device</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Lava Blaze Curve 5G | Dr.fone</u></a></li>
 </ul></div>
+
 

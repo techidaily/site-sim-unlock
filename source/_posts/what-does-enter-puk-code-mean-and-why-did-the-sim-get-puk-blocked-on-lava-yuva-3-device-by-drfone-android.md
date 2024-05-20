@@ -1,7 +1,7 @@
 ---
 title: What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Lava Yuva 3 Device
-date: 2024-04-30T18:19:10.770Z
-updated: 2024-05-01T18:19:10.770Z
+date: 2024-05-19T11:26:03.339Z
+updated: 2024-05-20T11:26:03.339Z
 tags: 
   - unlock
   - sim unlock
@@ -391,4 +391,5 @@ Now that you have at least 10 solutions to choose from, we hope you are able to 
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-for-apple-iphone-12-mini-lock-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide For Apple iPhone 12 mini Lock Screen | Dr.fone</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-pro-max-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 Pro Max without Passcode or Face ID | Dr.fone</u></a></li>
 </ul></div>
+
 

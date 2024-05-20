@@ -1,7 +1,7 @@
 ---
 title: In 2024, Top 11 Free Apps to Check IMEI on Sony Phones
-date: 2024-04-30T18:17:37.907Z
-updated: 2024-05-01T18:17:37.907Z
+date: 2024-05-19T11:25:50.084Z
+updated: 2024-05-20T11:25:50.084Z
 tags: 
   - unlock
   - sim unlock
@@ -563,4 +563,5 @@ So, breathe easy, explore your options, and choose the path best suits your situ
 <li><a href="https://techidaily.com/y78plus-t1-edition-support-turn-off-screen-lock-by-drfone-android-unlock-android-unlock/" ><u>Y78+ (T1) Edition support - Turn Off Screen Lock.</u></a></li>
 <li><a href="https://review-topics.techidaily.com/play-hevc-h-265-on-samsung-galaxy-xcover-7-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/" ><u>Play HEVC H.265 on Samsung Galaxy XCover 7, is it possible?</u></a></li>
 </ul></div>
+
 

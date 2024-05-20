@@ -1,7 +1,7 @@
 ---
 title: What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Nokia C02 Device
-date: 2024-04-30T18:23:29.251Z
-updated: 2024-05-01T18:23:29.251Z
+date: 2024-05-19T11:26:18.342Z
+updated: 2024-05-20T11:26:18.342Z
 tags: 
   - unlock
   - sim unlock
@@ -481,4 +481,5 @@ Now that you know the three ways of unlocking your Nokia C02, all you need to do
 <li><a href="https://ai-video-apps.techidaily.com/new-in-2024-streamline-your-video-editing-best-flv-editor-for-windows-8-users/"><u>New In 2024, Streamline Your Video Editing Best FLV Editor for Windows 8 Users</u></a></li>
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-meizu-21mirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Meizu 21Mirror Share to PC? | Dr.fone</u></a></li>
 </ul></div>
+
 

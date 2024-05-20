@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your OnePlus 12R Is Unlocked
-date: 2024-04-30T18:26:21.902Z
-updated: 2024-05-01T18:26:21.902Z
+date: 2024-05-19T11:26:27.939Z
+updated: 2024-05-20T11:26:27.939Z
 tags: 
   - unlock
   - sim unlock
@@ -403,4 +403,5 @@ If your OnePlus 12R phone is locked, you don’t need to worry. It is really eas
 <li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-15-best-vloggers-that-you-should-follow-for-travel/"><u>Updated 2024 Approved 15 Best Vloggers That You Should Follow for Travel</u></a></li>
 <li><a href="https://ai-editing-video.techidaily.com/2024-approved-split-a-clip-in-davinci-resolve-step-by-step/"><u>2024 Approved Split a Clip in DaVinci Resolve Step by Step</u></a></li>
 </ul></div>
+
 

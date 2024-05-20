@@ -1,7 +1,7 @@
 ---
 title: In 2024, How To Check if Your Lava Yuva 3 Pro Is Unlocked
-date: 2024-04-30T18:18:57.361Z
-updated: 2024-05-01T18:18:57.361Z
+date: 2024-05-19T11:26:02.596Z
+updated: 2024-05-20T11:26:02.596Z
 tags: 
   - unlock
   - sim unlock
@@ -358,4 +358,5 @@ Well so now that you know all the basics of unlocking carrier phones and the ris
 <li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-realme-12plus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Realme 12+ 5G | Dr.fone</u></a></li>
 <li><a href="https://review-topics.techidaily.com/oppo-data-retrieval-tool-restore-lost-data-from-oppo-reno-10-5g-by-fonelab-android-recover-data/"><u>Oppo Data Retrieval tool – restore lost data from Oppo Reno 10 5G</u></a></li>
 </ul></div>
+
 

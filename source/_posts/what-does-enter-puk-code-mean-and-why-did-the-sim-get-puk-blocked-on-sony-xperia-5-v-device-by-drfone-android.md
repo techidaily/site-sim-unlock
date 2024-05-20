@@ -1,7 +1,7 @@
 ---
 title: What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Sony Xperia 5 V Device
-date: 2024-04-30T18:17:37.978Z
-updated: 2024-05-01T18:17:37.978Z
+date: 2024-05-19T11:25:50.606Z
+updated: 2024-05-20T11:25:50.606Z
 tags: 
   - unlock
   - sim unlock
@@ -440,4 +440,5 @@ You will be directed to a payment page where you can make your payment.  The co
 <li><a href="https://android-unlock.techidaily.com/top-12-prominent-samsung-galaxy-m34-5g-fingerprint-not-working-solutions-by-drfone-android/" ><u>Top 12 Prominent Samsung Galaxy M34 5G Fingerprint Not Working Solutions</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-poco-c65-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/" ><u>In 2024, How to Transfer Contacts from Poco C65 to iPhone XS/11 | Dr.fone</u></a></li>
 </ul></div>
+
 

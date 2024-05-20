@@ -1,7 +1,7 @@
 ---
 title: How To Change Your SIM PIN Code on Your OnePlus 12R Phone
-date: 2024-04-30T18:26:21.688Z
-updated: 2024-05-01T18:26:21.688Z
+date: 2024-05-19T11:26:27.921Z
+updated: 2024-05-20T11:26:27.921Z
 tags: 
   - unlock
   - sim unlock
@@ -334,4 +334,5 @@ If your OnePlus 12R phone is locked, you don’t need to worry. It is really eas
 <li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-14-plus-to-other-iphone-12-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 14 Plus To Other iPhone 12 devices? | Dr.fone</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-access-your-iphone-8-plus-when-you-forget-the-passcode-by-drfone-ios/"><u>In 2024, How to Access Your iPhone 8 Plus When You Forget the Passcode?</u></a></li>
 </ul></div>
+
 

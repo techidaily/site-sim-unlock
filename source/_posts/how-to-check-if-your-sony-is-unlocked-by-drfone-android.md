@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your Sony Is Unlocked
-date: 2024-04-30T18:17:37.831Z
-updated: 2024-05-01T18:17:37.831Z
+date: 2024-05-19T11:25:49.252Z
+updated: 2024-05-20T11:25:49.252Z
 tags: 
   - unlock
   - sim unlock
@@ -379,4 +379,5 @@ You will be directed to a payment page where you can make your payment.  The co
 <li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-lava-yuva-3-drfone-by-drfone-reset-android-reset-android/" ><u>The Easiest Methods to Hard Reset Lava Yuva 3 | Dr.fone</u></a></li>
 <li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-realme-gt-5-pro-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/" ><u>Guide How To Unbrick a Bricked Realme GT 5 Pro Phone | Dr.fone</u></a></li>
 </ul></div>
+
 

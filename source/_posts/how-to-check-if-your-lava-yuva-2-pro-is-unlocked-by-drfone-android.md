@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your Lava Yuva 2 Pro Is Unlocked
-date: 2024-04-30T18:17:42.338Z
-updated: 2024-05-01T18:17:42.338Z
+date: 2024-05-19T11:25:58.241Z
+updated: 2024-05-20T11:25:58.241Z
 tags: 
   - unlock
   - sim unlock
@@ -407,4 +407,5 @@ You will be directed to a payment page where you can make your payment.  The co
 <li><a href="https://ai-video-apps.techidaily.com/new-create-stunning-home-videos-on-mac-os-with-ease-for-2024/"><u>New Create Stunning Home Videos on Mac OS with Ease for 2024</u></a></li>
 <li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-nokia-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Nokia</u></a></li>
 </ul></div>
+
 

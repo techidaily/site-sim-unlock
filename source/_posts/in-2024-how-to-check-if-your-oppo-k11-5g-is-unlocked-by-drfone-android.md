@@ -1,7 +1,7 @@
 ---
 title: In 2024, How To Check if Your Oppo K11 5G Is Unlocked
-date: 2024-04-30T18:30:29.297Z
-updated: 2024-05-01T18:30:29.297Z
+date: 2024-05-19T11:26:43.215Z
+updated: 2024-05-20T11:26:43.215Z
 tags: 
   - unlock
   - sim unlock
@@ -448,4 +448,5 @@ Once you have the proper PUK to [unlock your SIM card](https://tools.techidaily.
 <li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-honor-90-pro-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Honor 90 Pro FRP</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Oppo Reno 11F 5G? | Dr.fone</u></a></li>
 </ul></div>
+
 

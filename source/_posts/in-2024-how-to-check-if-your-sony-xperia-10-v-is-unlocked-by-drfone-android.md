@@ -1,7 +1,7 @@
 ---
 title: In 2024, How To Check if Your Sony Xperia 10 V Is Unlocked
-date: 2024-04-30T18:17:37.942Z
-updated: 2024-05-01T18:17:37.942Z
+date: 2024-05-19T11:25:50.455Z
+updated: 2024-05-20T11:25:50.455Z
 tags: 
   - unlock
   - sim unlock
@@ -512,4 +512,5 @@ As a crux, an unlocked phone is a better choice than a locked phone. We would pe
 <li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-xiaomi-redmi-note-12-pro-4g-phones-drfone-by-drfone-android/" ><u>In 2024, How to Mirror PC Screen to Xiaomi Redmi Note 12 Pro 4G Phones? | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-motorola-moto-g14-by-fonelab-android-recover-call-logs/" ><u>How to retrieve erased call logs from Motorola Moto G14?</u></a></li>
 </ul></div>
+
 

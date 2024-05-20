@@ -1,7 +1,7 @@
 ---
 title: What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Lava Yuva 3 Pro Device
-date: 2024-04-30T18:18:53.241Z
-updated: 2024-05-01T18:18:53.241Z
+date: 2024-05-19T11:26:02.356Z
+updated: 2024-05-20T11:26:02.356Z
 tags: 
   - unlock
   - sim unlock
@@ -380,4 +380,5 @@ It is very important to note that by unlocking your device you are breaching the
 <li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oppo-k11-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Oppo K11 5G to Other Android Devices? | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-motorola-moto-g34-5g-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Motorola Moto G34 5G Through Google Earth?</u></a></li>
 </ul></div>
+
 

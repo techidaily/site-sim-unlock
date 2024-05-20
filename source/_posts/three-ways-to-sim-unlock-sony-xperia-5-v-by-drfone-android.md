@@ -1,7 +1,7 @@
 ---
 title: Three Ways to Sim Unlock Sony Xperia 5 V
-date: 2024-04-30T18:17:37.991Z
-updated: 2024-05-01T18:17:37.991Z
+date: 2024-05-19T11:25:50.738Z
+updated: 2024-05-20T11:25:50.738Z
 tags: 
   - unlock
   - sim unlock
@@ -398,4 +398,5 @@ There are some LG models that cannot be unlocked. These models include LG U300, 
 <li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-huawei-nova-y91-drfone-by-drfone-virtual-android/" ><u>Preparation to Beat Giovani in Pokemon Go For Huawei Nova Y91 | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-sony-xperia-1-v-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/" ><u>Top 4 Android System Repair Software for Sony Xperia 1 V Bricked Devices | Dr.fone</u></a></li>
 </ul></div>
+
 

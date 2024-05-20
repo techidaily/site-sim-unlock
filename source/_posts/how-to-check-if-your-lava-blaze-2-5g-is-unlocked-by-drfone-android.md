@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your Lava Blaze 2 5G Is Unlocked
-date: 2024-04-30T18:18:44.332Z
-updated: 2024-05-01T18:18:44.332Z
+date: 2024-05-19T11:26:01.839Z
+updated: 2024-05-20T11:26:01.839Z
 tags: 
   - unlock
   - sim unlock
@@ -329,4 +329,5 @@ If your Lava Blaze 2 5G phone is locked, you don’t need to worry. It is really
 <li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-se-to-androidios-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone SE to Android/iOS? | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Samsung Galaxy Z Fold 5? | Dr.fone</u></a></li>
 </ul></div>
+
 

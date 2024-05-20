@@ -1,7 +1,7 @@
 ---
 title: What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On OnePlus 11R Device
-date: 2024-04-30T18:26:39.892Z
-updated: 2024-05-01T18:26:39.892Z
+date: 2024-05-19T11:26:28.990Z
+updated: 2024-05-20T11:26:28.990Z
 tags: 
   - unlock
   - sim unlock
@@ -406,4 +406,5 @@ If your OnePlus 11R phone is locked, you don’t need to worry. It is really eas
 <li><a href="https://android-location-track.techidaily.com/how-to-track-motorola-moto-g34-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Motorola Moto G34 5G Location without Installing Software? | Dr.fone</u></a></li>
 <li><a href="https://animation-videos.techidaily.com/how-to-make-3d-cartoon-of-yourself/"><u>How to Make 3D Cartoon of Yourself</u></a></li>
 </ul></div>
+
 

@@ -315,3 +315,4 @@ Step 3. The system will send you the unlock code and instruction email shortly. 
 <li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-lava-blaze-2-drfone-by-drfone-virtual-android/" ><u>Ultimate Guide to Catch the Regional-Located Pokemon For Lava Blaze 2 | Dr.fone</u></a></li>
 </ul></div>
 
+

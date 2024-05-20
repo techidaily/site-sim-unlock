@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Lava Yuva 2 Device
-date: 2024-04-30T18:18:22.293Z
-updated: 2024-05-01T18:18:22.293Z
+date: 2024-05-19T11:26:00.596Z
+updated: 2024-05-20T11:26:00.596Z
 tags: 
   - unlock
   - sim unlock
@@ -332,4 +332,5 @@ If your Lava Yuva 2 phone is locked, you don’t need to worry. It is really eas
 <li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-honor-100-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Honor 100 | Dr.fone</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-infinix-note-30i-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Infinix Note 30i To Phone | Dr.fone</u></a></li>
 </ul></div>
+
 

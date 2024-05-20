@@ -1,7 +1,7 @@
 ---
 title: Top 11 Free Apps to Check IMEI on Lava Blaze 2 Phones
-date: 2024-04-30T18:18:02.580Z
-updated: 2024-05-01T18:18:02.580Z
+date: 2024-05-19T11:25:59.407Z
+updated: 2024-05-20T11:25:59.407Z
 tags: 
   - unlock
   - sim unlock
@@ -611,4 +611,5 @@ Now that you know the three ways of unlocking your Lava Blaze 2, all you need to
 <li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-vivo-y56-5g-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Vivo Y56 5G</u></a></li>
 <li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-nokia-150-2023-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Nokia 150 (2023)</u></a></li>
 </ul></div>
+
 

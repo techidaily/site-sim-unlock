@@ -316,3 +316,4 @@ Overall, if you want to unlock Tecno , there are a number of methods that you ca
 <li><a href="https://ios-unlock.techidaily.com/how-to-open-your-iphone-12-without-a-home-button-by-drfone-ios/"><u>How To Open Your iPhone 12 Without a Home Button</u></a></li>
 </ul></div>
 
+

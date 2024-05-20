@@ -1,7 +1,7 @@
 ---
 title: Top 11 Free Apps to Check IMEI on OnePlus 12R Phones
-date: 2024-04-30T18:26:23.707Z
-updated: 2024-05-01T18:26:23.707Z
+date: 2024-05-19T11:26:28.044Z
+updated: 2024-05-20T11:26:28.044Z
 tags: 
   - unlock
   - sim unlock
@@ -596,4 +596,5 @@ If your OnePlus 12R phone is locked, you don’t need to worry. It is really eas
 <li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-lava-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Lava</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-infinix-smart-8-pro-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Infinix Smart 8 Pro Phone Password Using Emergency Call</u></a></li>
 </ul></div>
+
 

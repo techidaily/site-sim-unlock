@@ -1,7 +1,7 @@
 ---
 title: In 2024, Easily Unlock Your Sony Xperia 5 V Device SIM
-date: 2024-04-30T18:17:37.994Z
-updated: 2024-05-01T18:17:37.994Z
+date: 2024-05-19T11:25:50.761Z
+updated: 2024-05-20T11:25:50.761Z
 tags: 
   - unlock
   - sim unlock
@@ -288,4 +288,5 @@ If your Sony Xperia 5 V phone is locked, you don’t need to worry. It is really
 <li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-cant-i-install-the-ipogo-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/" ><u>In 2024, Why cant I install the ipogo On Apple iPhone SE (2022) | Dr.fone</u></a></li>
 <li><a href="https://ios-pokemon-go.techidaily.com/is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/" ><u>Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
 </ul></div>
+
 

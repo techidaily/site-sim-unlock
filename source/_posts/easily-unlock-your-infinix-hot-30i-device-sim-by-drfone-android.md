@@ -361,3 +361,4 @@ If your Infinix Hot 30i phone is locked, you don’t need to worry. It is really
 <li><a href="https://techidaily.com/different-methods-for-resetting-honor-magic-6-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/" ><u>Different Methods for Resetting Honor Magic 6 Phones with Screen Locked and Not | Dr.fone</u></a></li>
 </ul></div>
 
+

@@ -1,7 +1,7 @@
 ---
 title: Sim Unlock Sony Xperia 5 V Phones without Code 2 Ways to Remove Android Sim Lock
-date: 2024-04-30T18:17:37.985Z
-updated: 2024-05-01T18:17:37.985Z
+date: 2024-05-19T11:25:50.679Z
+updated: 2024-05-20T11:25:50.679Z
 tags: 
   - unlock
   - sim unlock
@@ -335,4 +335,5 @@ Now that you know the three ways of unlocking your Sony Xperia 5 V, all you need
 <li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-tecno-pova-5-drfone-by-drfone-fix-android-problems-fix-android-problems/" ><u>4 Ways to Fix Android Blue Screen of Death On Tecno Pova 5 | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/" ><u>In 2024, Is pgsharp legal when you are playing pokemon On Oppo Find N3 Flip? | Dr.fone</u></a></li>
 </ul></div>
+
 

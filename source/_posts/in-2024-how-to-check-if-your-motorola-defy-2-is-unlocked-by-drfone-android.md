@@ -1,7 +1,7 @@
 ---
 title: In 2024, How To Check if Your Motorola Defy 2 Is Unlocked
-date: 2024-04-30T18:20:55.510Z
-updated: 2024-05-01T18:20:55.510Z
+date: 2024-05-19T11:26:08.974Z
+updated: 2024-05-20T11:26:08.974Z
 tags: 
   - unlock
   - sim unlock
@@ -428,4 +428,5 @@ You will be directed to a payment page where you can make your payment.  The co
 <li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-from-apple-iphone-6-plus-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID from Apple iPhone 6 Plus</u></a></li>
 <li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On OnePlus Nord 3 5G | Dr.fone</u></a></li>
 </ul></div>
+
 
