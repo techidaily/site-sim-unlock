@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your Lava Blaze Pro 5G Is Unlocked
-date: 2024-05-19T11:26:01.340Z
-updated: 2024-05-20T11:26:01.340Z
+date: 2024-06-08T18:10:49.682Z
+updated: 2024-06-09T18:10:49.682Z
 tags: 
   - unlock
   - sim unlock
@@ -10,7 +10,7 @@ categories:
 description: This article describes How To Check if Your Lava Blaze Pro 5G Is Unlocked
 excerpt: This article describes How To Check if Your Lava Blaze Pro 5G Is Unlocked
 keywords: change imei android,how to check if phone is unlocked,Lava Blaze Pro 5G android sim unlock code generator,Lava Blaze Pro 5G change sim pin on android,Lava Blaze Pro 5G how to unlock sim card without puk code,Lava Blaze Pro 5G android unlock software,Lava Blaze Pro 5G sim unlock code,unlock
-thumbnail: https://www.lifewire.com/thmb/n7XTjADWmcwt2P_LF7WoPjqi8O4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-538600261-56c643115f9b5879cc3d6bde.jpg
+thumbnail: https://thmb.techidaily.com/5f19d12263b1224bd46b49560f2a184a0c0f8c0d56bb43f9e5c26e9a6768a6cd.jpg
 ---
 
 ## How To Check if Your Lava Blaze Pro 5G Is Unlocked

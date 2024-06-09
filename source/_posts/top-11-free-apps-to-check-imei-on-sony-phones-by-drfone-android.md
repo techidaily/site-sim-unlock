@@ -1,7 +1,7 @@
 ---
 title: Top 11 Free Apps to Check IMEI on Sony Phones
-date: 2024-05-19T11:25:49.347Z
-updated: 2024-05-20T11:25:49.347Z
+date: 2024-06-08T18:09:28.235Z
+updated: 2024-06-09T18:09:28.235Z
 tags: 
   - unlock
   - sim unlock
@@ -10,7 +10,7 @@ categories:
 description: This article describes Top 11 Free Apps to Check IMEI on Sony Phones
 excerpt: This article describes Top 11 Free Apps to Check IMEI on Sony Phones
 keywords: android device sim unlock,android unlock software,Sony Xperia 5 V how to check if phone is unlocked,Sony Xperia 5 V android sim unlock,Sony Xperia 5 V top sim unlock apk,Sony Xperia 5 V carrier unlock android phone,Sony Xperia 5 V android sim unlock code generator,Sony Xperia 5 V sim unlock code,top free apps on imei check
-thumbnail: https://www.lifewire.com/thmb/u__p9PWL3Uvoj7yKh73LTAz8p1I=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iphonedefaultalerttone-15a2b7bd66de41878765af23bd0d6c6f.png
+thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb44504b07d25f967a878becd.png
 ---
 
 ## Top 11 Free Apps to Check IMEI on Sony Xperia 5 V Phones
