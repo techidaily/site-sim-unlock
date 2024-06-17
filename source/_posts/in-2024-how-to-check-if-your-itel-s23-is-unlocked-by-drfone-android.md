@@ -1,7 +1,7 @@
 ---
 title: In 2024, How To Check if Your Itel S23 Is Unlocked
-date: 2024-05-19T11:28:35.385Z
-updated: 2024-05-20T11:28:35.385Z
+date: 2024-06-16T07:32:16.556Z
+updated: 2024-06-17T07:32:16.556Z
 tags: 
   - unlock
   - sim unlock
@@ -10,7 +10,7 @@ categories:
 description: This article describes How To Check if Your Itel S23 Is Unlocked
 excerpt: This article describes How To Check if Your Itel S23 Is Unlocked
 keywords: Itel S23 imei unlock,android device sim unlock code generator,Itel S23 top sim unlock apk,change imei android,top free apps on imei check,android sim unlock code generator
-thumbnail: https://www.lifewire.com/thmb/YDOkX4KOrU-1Gfk6Kj7DPlg333E=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/windows11contextmenu-f4d6ebb14db4444d851b4338aa553e21.png
+thumbnail: https://thmb.techidaily.com/3c1c5ccae26de82b5c27b74337e4224665d5a7b903378f876b3f4cc7ee4fa520.png
 ---
 
 ## How To Check if Your Itel S23 Is Unlocked

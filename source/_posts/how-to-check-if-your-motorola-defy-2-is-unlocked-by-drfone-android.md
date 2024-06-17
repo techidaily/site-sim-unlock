@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your Motorola Defy 2 Is Unlocked
-date: 2024-05-19T11:26:08.720Z
-updated: 2024-05-20T11:26:08.720Z
+date: 2024-06-16T07:32:26.976Z
+updated: 2024-06-17T07:32:26.976Z
 tags: 
   - unlock
   - sim unlock
@@ -10,7 +10,7 @@ categories:
 description: This article describes How To Check if Your Motorola Defy 2 Is Unlocked
 excerpt: This article describes How To Check if Your Motorola Defy 2 Is Unlocked
 keywords: best sim unlock services,imei unlock,carrier unlock android device phone,Motorola Defy 2 unlock code,Motorola Defy 2 unlock,Motorola Defy 2 android sim unlock,change sim pin on android,Motorola Defy 2 android unlock software,Motorola Defy 2 top free apps on imei check
-thumbnail: https://www.lifewire.com/thmb/0eladF6N0frE-HtBzdDkcGHF4eU=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-set-up-a-ps5-5088641-1bcc6bca24cd460bb2b276fdeb6cb830.jpg
+thumbnail: https://thmb.techidaily.com/78d24648f206f65b94f12ac351c4b3ce727b02ece4c292665e0f6b95fb5f60be.jpg
 ---
 
 ## How To Check if Your Motorola Defy 2 Is Unlocked

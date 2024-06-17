@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your Oppo A79 5G Is Unlocked
-date: 2024-05-19T11:26:46.181Z
-updated: 2024-05-20T11:26:46.181Z
+date: 2024-06-16T07:33:41.785Z
+updated: 2024-06-17T07:33:41.785Z
 tags: 
   - unlock
   - sim unlock
@@ -10,7 +10,7 @@ categories:
 description: This article describes How To Check if Your Oppo A79 5G Is Unlocked
 excerpt: This article describes How To Check if Your Oppo A79 5G Is Unlocked
 keywords: android device unlock code,top free apps on imei check,carrier unlock android phone,Oppo A79 5G change sim pin on android,change sim pin on android device,remove network lock,Oppo A79 5G remove network lock,how to check if phone is unlocked,Oppo A79 5G change imei android,Oppo A79 5G carrier unlock android phone
-thumbnail: https://www.lifewire.com/thmb/BPYPQrXsNWygpcoCT-Bo8NlAS2Y=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1094009490-2694d308001d46049e0755f4dd7fdf4c.jpg
+thumbnail: https://thmb.techidaily.com/667b327336657b37d917ada8179b0c23c67339c9f07504ad9ddbf600b0c76aae.jpg
 ---
 
 ## How To Check if Your Oppo A79 5G Is Unlocked

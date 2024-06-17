@@ -1,7 +1,7 @@
 ---
 title: What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Lava Agni 2 5G Device
-date: 2024-05-19T11:25:59.995Z
-updated: 2024-05-20T11:25:59.995Z
+date: 2024-06-16T07:32:18.087Z
+updated: 2024-06-17T07:32:18.087Z
 tags: 
   - unlock
   - sim unlock
@@ -10,7 +10,7 @@ categories:
 description: This article describes What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Lava Agni 2 5G Device
 excerpt: This article describes What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Lava Agni 2 5G Device
 keywords: android unlock code,how to unlock puk blocked sim card,change imei android,android sim unlock code generator,carrier unlock android phone,Lava Agni 2 5G android unlock code
-thumbnail: https://www.lifewire.com/thmb/cnbU86cA88gNmLB_6vGsp1ZnxFM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/asian-woman-talking-into-microphone-722208887-5b2a989730371300373a0447.jpg
+thumbnail: https://thmb.techidaily.com/078ec5c6b19df307c3d053f03815c7d21ecece8ed3226ebe1d118a70909568e6.jpg
 ---
 
 ## What Does 'Enter PUK Code' Mean And Why Did The Sim Get PUK Blocked On Lava Agni 2 5G Device

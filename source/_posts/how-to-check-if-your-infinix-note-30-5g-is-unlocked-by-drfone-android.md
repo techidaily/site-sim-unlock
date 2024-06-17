@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your Infinix Note 30 5G Is Unlocked
-date: 2024-04-12T00:44:58.972Z
-updated: 2024-04-13T00:44:58.972Z
+date: 2024-06-16T07:32:40.333Z
+updated: 2024-06-17T07:32:40.333Z
 tags: 
   - unlock
   - sim unlock
@@ -10,7 +10,7 @@ categories:
 description: This article describes How To Check if Your Infinix Note 30 5G Is Unlocked
 excerpt: This article describes How To Check if Your Infinix Note 30 5G Is Unlocked
 keywords: Infinix Note 30 5G imei unlock,Infinix Note 30 5G how to unlock sim card without puk code,how to unlock puk blocked sim card,Infinix Note 30 5G change imei android,Infinix Note 30 5G how to unlock sim card without jailbreak,best sim network unlock pin,Infinix Note 30 5G unlock
-thumbnail: https://www.lifewire.com/thmb/17eYx3JlNgYWrNsT2X2f6cCUjf0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/edit-tweet-after-publish-3476767-34af9aa3b62b4bf4b11891460076916b.png
+thumbnail: https://thmb.techidaily.com/a9309627364580efd732c4c8f6349cf67c0dc25ea886bdb64936441ab4225274.png
 ---
 
 ## How To Check if Your Infinix Note 30 5G Is Unlocked

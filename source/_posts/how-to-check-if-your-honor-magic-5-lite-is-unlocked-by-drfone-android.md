@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your Honor Magic 5 Lite Is Unlocked
-date: 2024-04-12T00:44:54.979Z
-updated: 2024-04-13T00:44:54.979Z
+date: 2024-06-16T07:33:41.663Z
+updated: 2024-06-17T07:33:41.663Z
 tags: 
   - unlock
   - sim unlock
@@ -10,7 +10,7 @@ categories:
 description: This article describes How To Check if Your Honor Magic 5 Lite Is Unlocked
 excerpt: This article describes How To Check if Your Honor Magic 5 Lite Is Unlocked
 keywords: change imei android device,Honor Magic 5 Lite sim unlock android without code,carrier unlock android phone,Honor Magic 5 Lite carrier unlock android phone,android sim unlock code generator,Honor Magic 5 Lite unlock,Honor Magic 5 Lite change sim pin on android
-thumbnail: https://www.lifewire.com/thmb/TUGFYGtB5bZInUlxzvTab3CVXdM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsungvoiceassistant-1c59910bc4614b2a8531fc5b7a754e7d.jpg
+thumbnail: https://thmb.techidaily.com/aa75ccceb27df582eb4900ae099d99b1731677ace1a8dcb38cd4f8698fb9bdda.jpg
 ---
 
 ## How To Check if Your Honor Magic 5 Lite Is Unlocked
