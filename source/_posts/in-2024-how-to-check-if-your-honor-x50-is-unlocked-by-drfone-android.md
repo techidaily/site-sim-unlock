@@ -1,7 +1,7 @@
 ---
 title: In 2024, How To Check if Your Honor X50 Is Unlocked
-date: 2024-05-19T11:28:24.763Z
-updated: 2024-05-20T11:28:24.763Z
+date: 2024-06-24T07:19:24.044Z
+updated: 2024-06-25T07:19:24.044Z
 tags: 
   - unlock
   - sim unlock
@@ -10,7 +10,7 @@ categories:
 description: This article describes How To Check if Your Honor X50 Is Unlocked
 excerpt: This article describes How To Check if Your Honor X50 Is Unlocked
 keywords: Honor X50 unlock,android sim unlock code generator,unlock code,sim unlock code,android device unlock code,how to unlock puk blocked sim card
-thumbnail: https://www.lifewire.com/thmb/VhWXwk4rULRvURLd-ts4rpfPSxw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1250476440-2ff779100e984029aa752236f9791b11.jpg
+thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653067a4110ec11928ef11818a.jpg
 ---
 
 ## How To Check if Your Honor X50 Is Unlocked
@@ -193,7 +193,7 @@ There are many different methods to SIM unlock your Android device, however, the
 
 
 
-### [Dr.Fone - Screen Unlock (Android)](https://tools.techidaily.com/wondershare-dr-fone-unlock-android-screen/)
+### Dr.Fone - Screen Unlock (Android)
 
 Unlock Your Honor X50 Device in a Flash
 
