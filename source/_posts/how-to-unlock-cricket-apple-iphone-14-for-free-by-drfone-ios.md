@@ -1,7 +1,7 @@
 ---
 title: How To Unlock Cricket Apple iPhone 14 for Free
-date: 2024-06-24T07:20:11.047Z
-updated: 2024-06-25T07:20:11.047Z
+date: 2024-07-02T20:27:36.241Z
+updated: 2024-07-03T20:27:36.241Z
 tags: 
   - unlock
   - sim unlock
@@ -226,7 +226,7 @@ This app can't yet be used to unlock T Mobile iPhone 5s devices as it is only ye
 
 ## Part 4: How to check if my iPhone is unlocked or not
 
-Before you take some drastic and time consuming measures it might be helpful to confirm whether you already have an unlocked phone. If you have a SIM with a separate network provider you can simply enter it and see whether it's accessible. However, if you don't currently have another SIM card, you can use DoctorSIM to also verify your unlock status with 3 simple steps. To do so you need to first go to this link[here](https://www.doctorsim.com/libtrkafl.html?pc=43d47c30d945bcbd7d9527f4049f649a&refe=https://www.doctorsim.com/us-en/?scp&euro)
+Before you take some drastic and time consuming measures it might be helpful to confirm whether you already have an unlocked phone. If you have a SIM with a separate network provider you can simply enter it and see whether it's accessible. However, if you don't currently have another SIM card, you can use DoctorSIM to also verify your unlock status with 3 simple steps. To do so you need to first go to this link [here](https://www.doctorsim.com/libtrkafl.html?pc=43d47c30d945bcbd7d9527f4049f649a&refe=https://www.doctorsim.com/us-en/?scp&euro)
 
 ### Check your Apple iPhone 14 unlock status
 

@@ -1,7 +1,7 @@
 ---
 title: How To Check if Your Infinix Hot 40i Is Unlocked
-date: 2024-04-12T00:44:58.689Z
-updated: 2024-04-13T00:44:58.689Z
+date: 2024-07-02T20:27:24.139Z
+updated: 2024-07-03T20:27:24.139Z
 tags: 
   - unlock
   - sim unlock
@@ -10,7 +10,7 @@ categories:
 description: This article describes How To Check if Your Infinix Hot 40i Is Unlocked
 excerpt: This article describes How To Check if Your Infinix Hot 40i Is Unlocked
 keywords: Infinix Hot 40i android sim unlock code generator,Infinix Hot 40i how to unlock sim card without jailbreak,Infinix Hot 40i android unlock code,imei unlock,Infinix Hot 40i sim unlock code,android sim unlock,change imei android device
-thumbnail: https://www.lifewire.com/thmb/XTn22vUEhR1g5hO3UkHHYfR8z14=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/tesla-bot-f6353f76ae214924916445da1da620ca.png
+thumbnail: https://thmb.techidaily.com/13887af25c31ebc0af7fa01bee84ac625b343ea776763c2dea469f5e646eb4f7.png
 ---
 
 ## How To Check if Your Infinix Hot 40i Is Unlocked
