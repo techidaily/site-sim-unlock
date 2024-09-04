@@ -1,7 +1,7 @@
 ---
 title: Top IMEI Unlokers for Your Honor Magic 5 Pro Phone
-date: 2024-08-29T11:41:09.046Z
-updated: 2024-08-30T11:41:09.046Z
+date: 2024-09-03T04:58:56.194Z
+updated: 2024-09-04T04:58:56.194Z
 tags: 
   - unlock
   - sim unlock
@@ -29,6 +29,18 @@ Although it is not free, it is very easy to use and very effective. It also come
 
 ![IMEI unlokers](https://images.wondershare.com/drfone/article/2016/06/14668660257963.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. IMEI-Unlocker
 
 Download Link: [https://www.imei-unlocker.com/](https://www.imei-unlocker.com/)
@@ -38,7 +50,10 @@ This is an app that has been developed by legendary unlocking website imei-unloc
 ![IMEI unlokers](https://images.wondershare.com/drfone/article/2016/06/14668660448112.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe id="iframe_1975636" src="//a.impactradius-go.com/gen-ad-code/5597632/1975636/22993" width="160" height="600" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<iframe id="iframe_1983474" src="//a.impactradius-go.com/gen-ad-code/5597632/1983474/22993" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 ### 3\. Unlock your Phone Fast & Secure
 
@@ -48,6 +63,12 @@ The major selling point of this app is that it supports a wide range of Android 
 
 ![IMEI unlokers](https://images.wondershare.com/drfone/article/2016/06/14668660676338.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Unlock Your Honor Magic 5 Pro Instant
 
 Download Link: [https://instant-unlock.com/](https://instant-unlock.com/)
@@ -64,6 +85,10 @@ This one is fairly new although it does work well to unlock your mobile device. 
 
 ![IMEI unlokers](https://images.wondershare.com/drfone/article/2016/06/14668661076527.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 
 
 ### [Dr.Fone - Screen Unlock (iOS)](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/)
@@ -73,19 +98,15 @@ iPhone SIM Unlock to Work on Any Carrier Worldwide
 - Support newly released models from iPhone 5S to iPhone X.
 - Move to any network operator within minutes aimlessly without data loss.![New icon](https://images.wondershare.com/drfone/others/new_23.png)
 - You can unlock an iPhone without an R-SIM.
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 - Compatible with most carriers, T-Mobile, Sprint, Verizon, etc.
 
 **3,981,454** people have downloaded it
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Part 2: Top 4 IMEI Unlokers for iPhone
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ### 1\. My IMEI Unlock
 
 Link: [https://myimeiunlock.com/](https://myimeiunlock.com/)
@@ -95,7 +116,10 @@ This is one of the most trusted unlocking service in the business. The services 
 ![IMEI unlokers](https://images.wondershare.com/drfone/article/2016/06/14668684169074.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. iPhone IMEI
 
@@ -105,12 +129,6 @@ Apart from offering you the chance to check your IMEI number, this service also 
 
 ![IMEI unlokers](https://images.wondershare.com/drfone/article/2016/06/14668684329966.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ### 3\. Let's Unlock iPhone
 
 Link: [https://letsunlockiphone.services/](https://letsunlockiphone.services/)
@@ -119,6 +137,9 @@ Yet another reliable service that easily unlocks your iPhone using the Honor Mag
 
 ![IMEI unlokers](https://images.wondershare.com/drfone/article/2016/06/14668684492894.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ### 4\. Cell Unlocker
 
 Link: [http://www.cellunlocker.net/apple-iphone-unlock-solution.php](http://www.cellunlocker.net/apple-iphone-unlock-solution.php)
@@ -128,24 +149,48 @@ For this service you first begin by selecting your iPhone model and then enterin
 ![IMEI unlokers](https://images.wondershare.com/drfone/article/2016/06/14668684913776.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<iframe id="iframe_1993645" src="//a.impactradius-go.com/gen-ad-code/5597632/1993645/22993" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 ## Conclusion
 
 Now that you have at least 10 solutions to choose from, we hope you are able to make use of your IMEI number to unlock your device. You have to part with some cash to use them but if it means getting your device working normally again, we think its worth the investment. Let us now how it works out for you.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Best Android SIM Unlock Code Generators: Unlock Your Honor Magic 5 Pro Phone Hassle-Free
 
 In today's world, smartphones have become an essential part of our lives. They offer a lot of convenience, but sometimes they can be a bit of a hassle. One of the biggest headaches that smartphone users face is carrier locking. This is when your phone is locked to a specific carrier, and you are unable to use it with any other carrier's SIM card.
 
 If you've tried Googling for solutions, you'll realize it may take a long time to find a reliable solution. In effect, what you're looking for is an Android [SIM unlock](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/) code generator to provide you with a free unlock code. Some free solutions may have hidden costs, so you must be careful in choosing the right Android [sim network to unlock pin software](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/). Here are seven free Android unlock code generators to consider.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="1456" height="180"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1. What is Android SIM Unlock Code Generator?
 
 Android SIM unlock code generator is a software or application that generates unlock codes for Android phones. These codes are used to unlock the phone's SIM card, enabling the phone to work with any carrier's SIM card. The software is designed to be user-friendly and easy to use, with step-by-step instructions to guide you through the process.
 
 You may be interested in: _**[How to Unlock Phone Free with IMEI Number](https://drfone.wondershare.com/unlock/unlock-phone-free-with-imei-number.html)**_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2. How Does Android SIM Unlock Code Generator Work?
 
 To use the Android SIM unlock code generator, you will need to download and install the software on your computer. Once installed, you will need to connect your Android phone to the computer using a USB cable. The software will then detect your phone and check if it is eligible for unlocking.
@@ -172,9 +217,6 @@ An unlocked phone has a higher resale value than a carrier-locked phone. This is
 
 If you want to switch to a different carrier, you may be tempted to buy a new phone that is compatible with that carrier. However, by unlocking your phone's SIM card, you can use your existing phone with any carrier's SIM card, saving you the cost of buying a new phone.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4. 4 Android SIM Unlock Code Generators Reviews
 
 There are several Android SIM unlock code generator software available on the internet. Here are some of the most popular ones:
@@ -208,18 +250,12 @@ All that is needed is the IMEI number from Your Honor Magic 5 Pro to generate an
 
 The NokiaFree Android SIM unlock code generator is getting better all the time. You now have access to a tool that is easy to use, and quickly unlocks restrictions on a wide range of mobiles, and anywhere in the world. An added bonus is it comes to you totally free of cost. The download takes very little time, and this Android unlock code generator does not interfere with other functions.
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tool 2: WorldUnlock Codes Calculator
 
 As the name suggests, the [WorldUnlock Codes Calculator](https://www.allmobitools.com/worldunlock-codes-calculator-latest/) can unlock your phone in any location with just a few clicks. It's easy to find a reliable code generator, but you'd have to pay for receiving a code in variable amounts. In other words, there are no fixed charges to locate your phone unlock code from a dealer. However, this software is totally free and requires only basic details to provide the unlock code.
 
 ![worldunlock](https://images.wondershare.com/drfone/article/2023/05/worldunlock-codes-calculator.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### How It Works
 
 Just locate the IMEI number by typing in \*#06# into your phone. Enter the code into the software along with basic details like country of purchase and service provider. That's it.
@@ -243,7 +279,7 @@ Works only with Windows-based operating systems.
 The WorldUnlock Codes Calculator can be easily downloaded to a Windows computer working on the latest operating system. The system generates several codes, so you're sure to find one that unlocks your phone. Many users are likely to use their services, considering it is a Windows-based system.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Tool 3: UnlockMe For Reliable Android SIM Unlock Solutions
 
@@ -251,23 +287,12 @@ If you own a Nokia phone, [UnlockMe](http://www.unlockme.co.uk/) will provide al
 
 ![unlock me](https://images.wondershare.com/drfone/article/2016/09/14733458887664.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 #### How It Works
 
 Check If your Nokia phone is listed on the site, then follow simple instructions to get your SIM to unlock code.
 
 ![how unlockme works](https://images.wondershare.com/drfone/article/2016/09/14733459091536.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 **Pros**
 
 - An exhaustive list of supported Nokia DCT4 and Nokia DCT3 models.
@@ -284,6 +309,12 @@ At the time of this review, the site was mainly providing Android SIM unlock cod
 
 UnlockMe works really well with users in the United Kingdom and its listed countries. It is expanding quite rapidly, so keeping in touch with this site makes sense. It does provide alternate solutions to finding unlocking codes at present, making it a worthwhile site to check out. If you are unable to find the unlock code this time, you're likely to find a solution the next time you visit this site.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Tool 4: UnlockItFree - Powerful Worldwide SIM Unlock Code Provider
 
 With many users asking for unlock codes, [UnlockItFree](http://www.unlockitfree.com/index.php) has developed from a free domain to a powerful worldwide service provider with better features. Nearly 90,000 phones have been unlocked with codes provided by this website. This simple Android unlock code generator packs a punch with accurate and advanced technologies embedded into its unlocking process.
@@ -297,7 +328,7 @@ A simple process is used to uncover free unlocking for even the Nokia DCT4 and D
 ![how unlockitfree works](https://images.wondershare.com/drfone/article/2016/09/14733462959936.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
 <!-- affiliate ads end -->
 **Pros**
 
@@ -315,7 +346,10 @@ After the first and last codes, users have two more attempts to unlock their pho
 Unlockitfree has grown into a powerful site over a period of time. By offering stable services, this reliable unlocking tool works well on most phones irrespective of location. Considering the number of phones that have found solutions on this website, it is likely this unlocking tool will continue to grow with informative feedback from its customer service cell. An Android SIM unlock code generator that works on most phones and across the globe is just what you need to find instant and free unlock codes.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Tutorial to Change Honor Magic 5 Pro IMEI without Root: A Comprehensive Guide
 
@@ -323,12 +357,18 @@ As an Android device user, you may have come across a situation where you need t
 
 Changing your Android IMEI without root access may seem like a daunting task, but this comprehensive guide will walk you through the process step-by-step. Before proceeding, please note that altering your device's IMEI number can be illegal in some countries, and may void your warranty. Proceed with caution and at your own risk. Get to know **how to change IMEI number** now!
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ## Part 1: What is IMEI and Why People Change The IMEI Number
 
 The International Mobile Equipment Identity (IMEI) is a unique identifier for every mobile device. It allows network providers and manufacturers to track and block devices if they are reported as lost or stolen. Changing your device's IMEI can help to unblock a blacklisted device, access certain network features and services, or maintain anonymity. However, be aware that altering your IMEI number is illegal in some countries and may void your warranty.
 
 ![imei number](https://images.wondershare.com/drfone/article/2023/05/imei-number.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ### There are several uses of the IMEI number
 
 1. As the use of mobile devices increases, the statistics of stolen and lost devices have been increasing as well. Users can block stolen or lost devices for further usage if they know their IMEI number. All users need to call their network carrier and report that the Honor Magic 5 Pro device is stolen or lost. The carrier can block the specific device from running on their network and notify other carriers.
@@ -354,8 +394,10 @@ Like many other things out there, changing Android IMEI has both advantages and 
 3. Legally, you have forfeited your ownership of your mobile device. When you purchase your device, the seller will jot down the original IMEI number on your receipt. So if you changed your IMEI and lost it, you may not be able to claim it. This is because authorities cannot see if it is truly yours. After all, the IMEI numbers no longer correlate with each other.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 2: How to Find the IMEI on an Android? (5 Ways)
 
@@ -372,30 +414,26 @@ One of the easiest ways to find the IMEI number on your Android device is throug
 - **Step 3:** Tap on "Status" or "IMEI information".
 - **Step 4:** You will see your IMEI number displayed on the screen. Note this down or take a screenshot for reference.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ### Method 2: Use the Dialer App
 
 Another quick method to find the IMEI number is by using the dialer app on your Android smartphone. Here's how:
 
 ![find imei number 06](https://images.wondershare.com/drfone/article/2023/05/06-imei-number.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 - **Step 1:** Open the "Phone" app or "Dialer" app on your Android device.
 - **Step 2:** Dial \*#06# on the keypad.
 - **Step 3:** The IMEI number will be displayed on the screen. Note it down or take a screenshot for reference.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### Method 3: Check the Honor Magic 5 Pro device Packaging or Receipt
 
 If you still have the original packaging or receipt for your Android device, you may find the IMEI number printed on it. Look for a label or sticker on the box that contains the Honor Magic 5 Pro device's details, including the IMEI number.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="1456" height="180"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 4: Find IMEI on a Removable Battery (for older devices)
 
 For older Android devices with removable batteries, you can find the IMEI number printed on a sticker underneath the battery. To locate it, follow these steps:
@@ -403,7 +441,10 @@ For older Android devices with removable batteries, you can find the IMEI number
 ![find imei number 06](https://images.wondershare.com/drfone/article/2023/05/find-imei-on-a-removable-battery.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 - **Step 1:** Power off your Android device.
 - **Step 2:** Remove the back cover and take out the battery.
@@ -411,7 +452,10 @@ For older Android devices with removable batteries, you can find the IMEI number
 - **Step 4:** Note it down or take a photo for reference.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="1456" height="180"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Method 5: Check the SIM Card Tray
 
@@ -420,13 +464,22 @@ Some Android devices have the IMEI number printed on the SIM card tray. To check
 ![check- -sim card tray](https://images.wondershare.com/drfone/article/2023/05/check-device-sim-card-tray.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="1456" height="180"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 - **Step 1:** Power off your Android device.
 - **Step 2:** Use the SIM card removal tool (or a paperclip) to eject the SIM card tray.
 - **Step 3:** Look for the IMEI number printed on the tray.
 - **Step 4:** Note it down or take a photo for reference.
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Does IMEI Change With SIM Card?
 
 No, swapping or changing the SIM card does not alter the IMEI (International Mobile Equipment Identity). The IMEI persists unchanged throughout the Honor Magic 5 Pro device's lifetime, functioning as a distinctive identifier solely for that particular device.
@@ -443,9 +496,6 @@ A factory reset wipes the data and settings on your device, returning it to its 
 
 The IMEI is embedded into the hardware of the Honor Magic 5 Pro device. It is typically printed on the Honor Magic 5 Pro device's packaging or can be found by dialing \*#06# on the phone's keypad. It's a crucial identifier for mobile networks, and authorities use it to uniquely identify and track devices across networks. It remains unchanged even after a factory reset.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 5: Requirements for Changing Android IMEI without Root
 
 Before you begin the process of changing your Android IMEI without root, there are a few things you will need:
@@ -457,9 +507,6 @@ Before you begin the process of changing your Android IMEI without root, there a
 
 Wondershare Dr.Fone is a tool that helps you keep your important data safe. It can back up all the important information on your Android phone or tablet, like photos, music, videos, contacts, and more and is compatible with over 8000 Android devices. The backup process is easy and only takes a few clicks. You can also restore your backup to any device you want, and choose which data you want to restore. This is a great way to make sure you never lose your important information!
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 6: How to Change Android IMEI Number without Root?
 
 There are several methods to change your Android IMEI without root access. This tutorial will cover three popular methods: using MobileUncle Tools, Xposed Installer and IMEI Changer Pro, and MTK Engineering Mode.
@@ -468,9 +515,6 @@ There are several methods to change your Android IMEI without root access. This 
 
 ![xposed imei changer pro](https://images.wondershare.com/drfone/article/2023/05/xposed-imei-changer-pro.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 This [IMEI changer Android app](https://apkresult.com/en/xposed-imei-changer-pro-apk) is built to allow a user to change the series of numbers that make up their devices' IMEI identification. Randomized IMEI numbers will be generated every time the app is used. However, users can type in a new IMEI number in the text field if they have a specific number in mind. This no-ads app is really simple to use--to complete the change, a user will only need to click the "Apply" button and restart their devices. Its interface is also simple enough for easy navigation.
 
 This method involves using the Xposed Installer app to install the IMEI Changer Pro module. Follow the steps below:
@@ -483,13 +527,15 @@ This method involves using the Xposed Installer app to install the IMEI Changer 
 - **Step 6:** Open the IMEI Changer Pro app and enter your new IMEI number in the provided field.
 - **Step 7:** Tap on the "Apply" button, and then restart your device. Your new IMEI number should now be active.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Using MobileUncle Tools
 
 ![xposed imei changer pro](https://images.wondershare.com/drfone/article/2023/05/mobiluncle-tools.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 [MobileUncle Tools](https://androidmtk.com/download-mobileuncle-apk) is a simple Android application that can retrieve your Android device's information, back up IMEI, change its IMEI, and search for its recovery files. It will also be able to assist you with any rebooting needs and many more!
 
 Follow these steps to change your IMEI using MobileUncle Tools:
@@ -506,15 +552,12 @@ Follow these steps to change your IMEI using MobileUncle Tools:
 - **Step 10:** Tap on the "Send AT Command" button. You should see a message confirming that the command has been sent successfully.
 - **Step 11:** Restart your device. The new IMEI number should now be active.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ### 3\. Using MTK Engineering Mode
 
 ![mtk change imei android](https://images.wondershare.com/drfone/article/2023/05/mtk-engineering-mode-logo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
 <!-- affiliate ads end -->
 [MTK Engineering Mode](https://play.google.com/store/apps/details?id=com.themonsterit.EngineerStarter&hl=en&gl=US) is another app designed for MediaTek devices that allows users to access hidden settings and options. It was specifically made for Taiwanese device manufacturers such as Tecno, Infinix, Elephone, Oppo, Chuwi, etc. While not fully recommended, reports have been that it works with Android devices made by non-Taiwanese manufacturers. Its clean interface makes navigating the app seamlessly.
 
@@ -523,7 +566,7 @@ Follow these steps to change your IMEI using MTK Engineering Mode:
 ![mtk change imei android](https://images.wondershare.com/drfone/article/2023/05/mtk-engineering-mode.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
 <!-- affiliate ads end -->
 - **Step 1:** Download and install the MTK Engineering Mode app from a trusted source.
 - **Step 2:** Launch the app and select "MTK Settings".
@@ -535,24 +578,24 @@ Follow these steps to change your IMEI using MTK Engineering Mode:
 - **Step 8:** Tap on the "Send AT Command" button. A confirmation message should appear.
 - **Step 9:** Restart your device, and the new IMEI number should be active.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## Part 7: How to Fix Software Errors Without Changing IMEI Number?
 
 If the reason you are looking for IMEI number change is constant software errors, better ways exist. One of the best choices to resolve software errors on Android devices is to use [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/drfone-toolkit/). It stands as the world's first one-click Android repair tool. Dr.Fone offers an effective solution to address a range of Android system issues.
 
 Its functionality restores the Android system to its normal state. All of this happens without needing any specialized skills. Dr.Fone ensures a hassle-free repair process.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ### Key Features of Wondershare Dr.Fone
 
 1. Dr.Fone has a high success rate in resolving Android issues.
 2. This tool supports a wide array of mainstream Android models, including the latest Samsung devices.
 3. It has cemented its versatility and reliability in system repair for Android devices.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="1456" height="180"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Steps to Repair Software Errors Without Changing IMEI Number via Dr.Fone
 
 Here is how to repair all sorts of Android software issues using Dr.Fone. Follow the steps properly to repair all sorts of software errors in your Android device without changing the IMEI number:
@@ -563,6 +606,15 @@ Launch the Wondershare Dr.Fone software on your computer and navigate to the "To
 
 ![select device type for repair](https://images.wondershare.com/drfone/guide/system-repair-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 #### Step 2: Enter Your Honor Magic 5 Pro Device's Details
 
 You'll proceed to a new screen, where clicking "Start" initiates the repair process. As you move to the next window, the platform will identify the "Brand" of the Honor Magic 5 Pro device. Then, choose the "Name", "Model", "Country", and "Carrier". If your device is already unlocked, select "OPEN" in the Carrier section. Afterward, mark the checkbox indicating agreement with the warning and readiness to proceed and Click "Next".
@@ -576,7 +628,7 @@ When prompted, follow the on-screen instructions to enter Download Mode on your 
 ![put in download mode](https://images.wondershare.com/drfone/guide/android-system-repair-6.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
 <!-- affiliate ads end -->
 #### Step 4: Complete the Android Repair Process
 
@@ -584,6 +636,9 @@ Remember, this repair process may result in the erasure of all data. Confirm and
 
 ![fix device by installing firmware](https://images.wondershare.com/drfone/guide/android-system-repair-7.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 

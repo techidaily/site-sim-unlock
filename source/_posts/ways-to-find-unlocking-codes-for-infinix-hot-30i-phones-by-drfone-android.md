@@ -1,7 +1,7 @@
 ---
 title: Ways To Find Unlocking Codes For Infinix Hot 30i Phones
-date: 2024-08-29T11:45:12.648Z
-updated: 2024-08-30T11:45:12.648Z
+date: 2024-09-03T04:58:50.372Z
+updated: 2024-09-04T04:58:50.372Z
 tags: 
   - unlock
   - sim unlock
@@ -37,14 +37,6 @@ Once you have entered all the details correctly click "Generate" and the website
 
 Use the first one. If it fails to work, try the last code. 80% of people unlock their devices with either the first or the last code. Of this doesn't work either, try 2 more. But don't enter more than 4 codes as this will disable your device.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ### 2\. Trycktill
 
 Website URL: [http://www.trycktill.com/](http://www.trycktill.com/)
@@ -53,6 +45,9 @@ This one is more a website for mobile content but it can also generate free mobi
 
 ![ways to find unlocking codes-Trycktill](https://images.wondershare.com/drfone/article/2016/06/14670164597759.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Select your phone model from the drop down menu and then select the model number and enter the IMEI number. Finally, agree to the terms and conditions and then click "Generate Code."
 
 In the results page you should see a code as well as instructions on how to use it to unlock the phone. The codes and instructions will differ slightly depending on the Infinix Hot 30i device model.
@@ -71,6 +66,12 @@ Once you have downloaded the software, launch to on your computer and then provi
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### [Dr.Fone - Screen Unlock (Android)](https://tools.techidaily.com/wondershare-dr-fone-unlock-android-screen/)
 
 Unlock Your Infinix Hot 30i Device in a Flash
@@ -79,7 +80,7 @@ Unlock Your Infinix Hot 30i Device in a Flash
 - Bypass Android FRP lock without a PIN or Google account.![New icon](https://images.wondershare.com/drfone/others/new_23.png)
 - Unlock mainstream Android brands like Samsung, Huawei, LG, Xiaomi, etc.
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
 <!-- affiliate ads end -->
 - No tech knowledge required, Simple, click-through, process.
 
@@ -90,7 +91,7 @@ Unlock Your Infinix Hot 30i Device in a Flash
 For iPhone users there is a way to get unlocking codes for free. This is a new form of payment known as TrialPay. The following three sites offer you the chance to trade tasks for unlock codes.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
 <!-- affiliate ads end -->
 ### 1\. Free Unlocks
 
@@ -103,7 +104,10 @@ To use it all you have to do is select the phone model and the phone type. You w
 ![ways to find unlocking codes-Free Unlocks](https://images.wondershare.com/drfone/article/2016/06/14670906618902.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. iPhoneIMEI
 
@@ -114,10 +118,7 @@ iPhoneIMEI.net uses an official method to unlock iPhone devices and whitelist yo
 ![sim unlock iphone with iphoneimei.net](https://images.wondershare.com/drfone/article/2016/06/14670574228916.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 3\. DoctorSIM - SIM Unlock Service
 
@@ -130,7 +131,10 @@ On the new window, fill in your phone IMEI number, model, contact email, and oth
 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="1456" height="180"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### [Dr.Fone - Screen Unlock (iOS)](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/)
 
@@ -143,6 +147,12 @@ Unlock SIM Cards in a 3-Step Method
 
 **3,981,454** people have downloaded it
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="1456" height="180"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Popular Youtube Video for Unlocking Your Infinix Hot 30i
 
 Here we've found a popular video on Youtube for you to follow and sim unlock your phone.
@@ -154,14 +164,23 @@ It is very important to note that by unlocking your device you are breaching the
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg)safe & secure
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<iframe id="iframe_1983545" src="//a.impactradius-go.com/gen-ad-code/5597632/1983545/22993" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
 <!-- affiliate ads end -->
 ## Easily Unlock Your Infinix Hot 30i Device SIM
 
 Is your Android phone SIM locked? Having an unlocked device can have its benefits but most of the time most people don't even know whether their device is SIM locked or not. In this article we are going to address this issue. We are going to begin by helping you find out whether your phone is locked or not and if it is, how you can [sim unlock](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/) the Infinix Hot 30i device and enjoy the benefits of an unlocked phone.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 1: How to Know if your Android is SIM Locked
 
@@ -197,11 +216,14 @@ You should also know that many of them will charge a certain amount for your ser
 
 ![android SIM unlock-safeunlockcode](https://images.wondershare.com/drfone/article/2016/06/14670084936436.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 You will need to enter the IMEI number as part of the information you need to provide before they can unlock your device.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="1456" height="180"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Troubleshooting Android SIM Unlock
 
 There are lots of issues you may face when you try to unlock your device. The following are just some of the troubleshooting actions you can take if you encounter these problems.
@@ -220,6 +242,9 @@ There are some LG models that cannot be unlocked. These models include LG U300, 
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## How To Unlock SIM Cards Of Infinix Hot 30i Without PUK Codes
 
 Unintentionally locking your SIM card with an incorrect PIN is a common occurrence. It’s frustrating because it prevents you from accessing your essential mobile services. Thankfully, Personal Unblocking Key (PUK) codes offer a way to unlock it. However, what happens if you lose them?
@@ -229,7 +254,10 @@ This comprehensive guide explores **how to unlock SIM cards without the PUK Code
 ![back of sim packaging puk code](https://images.wondershare.com/drfone/article/2024/02/unlock-sim-without-puk-code-01.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 1: Official Ways To Unlock SIM Cards With a Lost PUK Code
 
@@ -237,10 +265,6 @@ Locking your SIM card with a forgotten PIN can be a frustrating experience, espe
 
 Firstly, remember that the PUK code typically arrives alongside your SIM card in its original packaging. Keeping this information safe alongside your other crucial documents is always helpful. However, if memory betrays you and the packaging is nowhere to be found, this part will show you **how to unlock SIM cards without PUK codes** with the help of your carrier.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### Method 1: Contacting Your Carrier’s Customer Service
 
 The most straightforward approach is contacting your mobile carrier’s customer service department directly. Their representatives are trained to assist in such situations and can verify your identity before providing the PUK code. Be prepared to answer security questions and provide relevant account details to ensure a smooth process.
@@ -256,9 +280,6 @@ Here’s what you’ll need:
 - **Receive your PUK code/new SIM card.** Once verified, the representative will provide you with your PUK code. Be sure to write it down in a secure location for future reference. They might offer you a replaced SIM card if no PUK codes exist.
 - **Unlock your SIM card.**Enter the PUK code on your phone following the specific instructions provided by your carrier. This typically involves entering the PUK code followed by a new PIN.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Method 2: Retrieving the PUK Code Through Your Carrier’s Website
 
 Many mobile carriers offer self-service options on their websites, allowing you to manage your account and access information independently. If your carrier provides this functionality, you can retrieve your PUK code online without contacting customer service. This way, you’ll learn **how to unlock SIM cards without PUK numbers**.
@@ -278,7 +299,10 @@ Remember, these steps are general guidelines, and specific procedures may vary d
 By following these official routes, you can safely and securely bypass the PUK code hurdle and regain access to your vital mobile services. Stay tuned for Part 2, where you’ll explore alternative unlocking methods for those who prefer a different approach.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 2: Unlocking SIM Cards With the Help of a Third-Party Tool
 
@@ -286,13 +310,13 @@ While official methods through your carrier are always recommended, some situati
 
 Disclaimer: Before proceeding, be aware that utilizing third-party tools might void your device’s warranty and potentially introduce security risks. Choose trusted, reputable applications with clear user guides and a history of responsible operation. Proceed with caution and at your discretion.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Introducing Wondershare Dr.Fone
 
 Dr.Fone stands out as a trusted and versatile tool for SIM unlocking. It surpasses mere unlocking functionality, offering a comprehensive suite of features like data repair, system repair, screen unlock, and more, catering to various mobile needs under one software. With over 50 million active users, Dr.Fone boasts a solid reputation for reliability and effectiveness.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_1265663" src="//a.impactradius-go.com/gen-ad-code/5597632/1265663/4482" width="300" height="250" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### Unlocking Your SIM With Dr.Fone
 
 Dr.Fone’s SIM unlocking capability resides within its “Screen Unlock” feature. This powerful toolset caters to bypassing various locks, including Apple ID, Google accounts, and more. Remember, this feature is intended for legitimate use only, respecting device ownership and security protocols. Either way, it’s a great way to know **how to unlock SIM cards with iPhones without PUK codes.**
@@ -306,24 +330,27 @@ To use this powerful feature, follow the steps below:
 
 ![dr.fone homepage](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 - **Step 3:** Click **Remove SIM Locked** to start the unlocking process.
 
 ![dr.fone screen unlock page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 - **Step 4:** Click **Start** when you see this page.
 
 ![dr.fone sim unlock page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 - **Step 5:** Verify your device details and hit **Unlock Now.**
 
 ![dr.fone sim phone verify page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 - **Step 6:** Be aware that jailbreaking your iPhone is necessary. Use the provided **JailBreak Guide** or **Watch Video** if needed.
 
 ![dr.fone sim jailbreak page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-4.png)
@@ -332,9 +359,6 @@ To use this powerful feature, follow the steps below:
 
 ![dr.fone instructions sim operation](https://images.wondershare.com/drfone/guide/remove-iphone-sim-5.png)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 - **Step 8:** Once finished, click **Done** to enjoy your unlocked SIM card!
 
 ![dr.fone sim lock removal success](https://images.wondershare.com/drfone/guide/remove-iphone-sim-7.png)
