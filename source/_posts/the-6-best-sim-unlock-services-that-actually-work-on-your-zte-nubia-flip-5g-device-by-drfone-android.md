@@ -1,7 +1,7 @@
 ---
 title: The 6 Best SIM Unlock Services That Actually Work On Your ZTE Nubia Flip 5G Device
-date: 2024-09-03T04:58:52.809Z
-updated: 2024-09-04T04:58:52.809Z
+date: 2024-09-07T15:26:34.527Z
+updated: 2024-09-08T15:26:34.527Z
 tags: 
   - unlock
   - sim unlock
@@ -23,6 +23,12 @@ In our ever-connected world, the need for flexibility and freedom in choosing a 
 
 ![screen unlock agreement](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2.** Connected your tool to the computer. Complete the authorization verification process with “Start” and click on “Confirmed” to continue.
 
 ![authorization](https://images.wondershare.com/drfone/guide/remove-iphone-sim-2.png)
@@ -41,6 +47,12 @@ In our ever-connected world, the need for flexibility and freedom in choosing a 
 
 Next, follow the instructions, and you will be able to use any carriers soon. Dr.Fone will  “Remove Setting” for your device at last to enable Wi-Fi connecting. Visit the [iPhone SIM Unlock guide](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/) to get more!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Unlock Base
 
 Website URL: [https://www.unlockbase.com/wholesale-phone-unlocking](https://www.unlockbase.com/wholesale-phone-unlocking)
@@ -66,7 +78,16 @@ continue.  You will be sent to a checkout page where you can pay the amount. Th
 ![SIM unlock service](https://images.wondershare.com/drfone/article/2016/06/14670574228916.jpg)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_1938136" src="//a.impactradius-go.com/gen-ad-code/5597632/1938136/22993" width="160" height="600" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 4\. Doctor SIM
 
@@ -78,12 +99,6 @@ In the next window, select your country and network provider and enter the phone
 
 ![SIM unlock service](https://images.wondershare.com/drfone/article/2016/06/14670574371837.jpg)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_1328679" src="//a.impactradius-go.com/gen-ad-code/5597632/1328679/15852" width="300" height="250" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Mobile Unlocked
 
 Website URL: [https://www.mobileunlocked.com/](https://www.mobileunlocked.com/)
@@ -108,6 +123,12 @@ You will be directed to a payment page where you can make your payment.  The co
 
 ![SIM unlock service](https://images.wondershare.com/drfone/article/2016/06/14670574684690.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 
 ## Three Ways to Sim Unlock ZTE Nubia Flip 5G
@@ -116,9 +137,6 @@ You probably purchased your ZTE Nubia Flip 5G for a significant discount but are
 
 There are three ways you can do it and this post will go through each method so that you can find one that you are most comfortable with. Do note that if your contract has ended with your network provider, this "How to unlock ZTE Nubia Flip 5G" post can be skipped as you can just ask them to unlock your phone or purchase a [sim network unlock pin](https://drfone.wondershare.com/unlock/unlock-samsung-sim-network-unlock-pin.html) for a minimal price.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## Part 1: ZTE Nubia Flip 5G Unlock Code
 
 This is probably the easiest, no-fuss method to [sim unlock](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/) ZTE Nubia Flip 5G. Follow these steps carefully to successfully perform ZTE Nubia Flip 5G unlock code.
@@ -130,25 +148,25 @@ Do take note that this process may not work with your carrier. Therefore, always
 ![sony xperia unlock code](https://images.wondershare.com/drfone/article/2016/08/14707989592943.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="1456" height="180"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 - 2\. Tap **Service info** then **Sim lock**.
 
 ![unlock with sony xperia unlock code](https://images.wondershare.com/drfone/article/2016/08/14707989592897.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 - 3\. The number beside **Network** indicates how many attempts you have to unlock the phone. If it says '7' it means you have seven attempts; '0' simply means it is hard locked and cannot be unlocked using this method.
 
 ![unlock code sony xperia](https://images.wondershare.com/drfone/article/2016/08/14707989597664.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 - 4\. Find the **IMEI number** by dialing **\*#06#**. Jot it down as this will be your code.
 
 ![sony unlock code](https://images.wondershare.com/drfone/article/2016/08/14707998453087.jpg)
@@ -158,21 +176,34 @@ Do take note that this process may not work with your carrier. Therefore, always
 ![sony unlock screen](https://images.wondershare.com/drfone/article/2016/08/unlock-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="1456" height="180"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 If you have followed these steps to a tee, you should have unlocked your device. If you had to abort after Step 2, look at the other two methods below.
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: The Best ZTE Nubia Flip 5G SIM Unlock Code Generator
 
 To safely and successfully sim unlock your ZTE Nubia Flip 5G, it is important to find a trustworthy [sim network unlock pin software](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/). Here I am going you present to you DoctorSIM - SIM Unlock Service. It definitely is one of the best sim unlocking code generators in the market. It helps you permanently sim unlock your phone so you can use it on any carrier provider you want in the world.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### How to use SIM Unlock Service
 
@@ -180,10 +211,6 @@ Step 1. Visit Doctor - SIM Unlock Service official website, click on the Select 
 
 Step 2. On the new window, fill in your phone IMEI number, model, your contact email, and other required information. Once your order is processed, the system will then send you the unlock code and instructions. You can follow the instruction to unlock your phone easily.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## Part 3: ZTE Nubia Flip 5G Unlock Carrier
 
 If your ZTE Nubia Flip 5G is hard locked, this is your best bet in getting your device unlocked. Actually, it is the safest method among all three:
@@ -195,12 +222,6 @@ If your ZTE Nubia Flip 5G is hard locked, this is your best bet in getting your 
 
 ![sony unlock screen](https://images.wondershare.com/drfone/article/2016/08/unlock-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: ZTE Nubia Flip 5G Unlock App/Software
 
 There are some of us out there who are just not confident with doing things ourselves or trusting our own carrier.
@@ -213,6 +234,18 @@ One that we can attest to is  **[MyMobileUnlocking.com](http://mymobileunlockin
 
 ![unlock sony xperia](https://images.wondershare.com/drfone/article/2016/08/14708923474346.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 - Select your device's **Phone Brand** (ZTE Ericsson) and click the **Confirm brand** button.
 
 ![unlock sony phone](https://images.wondershare.com/drfone/article/2016/08/14708923471100.jpg)
@@ -229,6 +262,12 @@ One that we can attest to is  **[MyMobileUnlocking.com](http://mymobileunlockin
 
 ![unlock sony xperia](https://images.wondershare.com/drfone/article/2016/08/14708923457478.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 - Make payment for the service. Follow the instructions carefully.
 
 ![sony sim unlock](https://images.wondershare.com/drfone/article/2016/08/14708923455523.jpg)
@@ -239,6 +278,18 @@ One that we can attest to is  **[MyMobileUnlocking.com](http://mymobileunlockin
 
 ![sim network unlock pin sony xperia](https://images.wondershare.com/drfone/article/2016/08/unlock-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 5: The benefits of an unlocked ZTE Nubia Flip 5G
 
 If you now know how to unlock ZTE Nubia Flip 5G but still do not know its advantages, we are here to help.
@@ -254,8 +305,16 @@ Are you thinking "Well, why can't I just buy an unlocked ZTE Nubia Flip 5G in th
 For example, in Australia, an unlocked ZTE Nubia Flip 5G will cost around $499 from any ZTE outlet but $0 for the ZTE Nubia Flip 5G device when you pair it with a 24-month postpaid plan. While this may look attractive now, you may be paying more for a locked ZTE Nubia Flip 5G in the long run.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Conclusion
 
@@ -267,15 +326,18 @@ As an Android device user, you may have come across a situation where you need t
 
 Changing your Android IMEI without root access may seem like a daunting task, but this comprehensive guide will walk you through the process step-by-step. Before proceeding, please note that altering your device's IMEI number can be illegal in some countries, and may void your warranty. Proceed with caution and at your own risk. Get to know **how to change IMEI number** now!
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_1975503" src="//a.impactradius-go.com/gen-ad-code/5597632/1975503/22993" width="160" height="600" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Part 1: What is IMEI and Why People Change The IMEI Number
 
 The International Mobile Equipment Identity (IMEI) is a unique identifier for every mobile device. It allows network providers and manufacturers to track and block devices if they are reported as lost or stolen. Changing your device's IMEI can help to unblock a blacklisted device, access certain network features and services, or maintain anonymity. However, be aware that altering your IMEI number is illegal in some countries and may void your warranty.
 
 ![imei number](https://images.wondershare.com/drfone/article/2023/05/imei-number.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### There are several uses of the IMEI number
 
 1. As the use of mobile devices increases, the statistics of stolen and lost devices have been increasing as well. Users can block stolen or lost devices for further usage if they know their IMEI number. All users need to call their network carrier and report that the ZTE Nubia Flip 5G device is stolen or lost. The carrier can block the specific device from running on their network and notify other carriers.
@@ -301,87 +363,104 @@ Like many other things out there, changing Android IMEI has both advantages and 
 3. Legally, you have forfeited your ownership of your mobile device. When you purchase your device, the seller will jot down the original IMEI number on your receipt. So if you changed your IMEI and lost it, you may not be able to claim it. This is because authorities cannot see if it is truly yours. After all, the IMEI numbers no longer correlate with each other.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 2: How to Find the IMEI on an Android? (5 Ways)
 
 It is essential to know your Android device's IMEI for various reasons, such as registering the ZTE Nubia Flip 5G device, reporting it as stolen or lost, checking warranty status, or verifying its authenticity. In this part, we will walk you through the various methods on how to find the IMEI on your Android device.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="1456" height="180"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 1: Locate IMEI through the Settings App
 
 One of the easiest ways to find the IMEI number on your Android device is through the Settings app. Follow these simple steps:
 
 ![find imei number through settiings](https://images.wondershare.com/drfone/article/2023/05/locate-imei-through-the-settings-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 - **Step 1:** Open the "Settings" app on your Android device.
 - **Step 2:** Scroll down and tap on "About phone" or "About device".
 - **Step 3:** Tap on "Status" or "IMEI information".
 - **Step 4:** You will see your IMEI number displayed on the screen. Note this down or take a screenshot for reference.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="1456" height="180"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2: Use the Dialer App
 
 Another quick method to find the IMEI number is by using the dialer app on your Android smartphone. Here's how:
 
 ![find imei number 06](https://images.wondershare.com/drfone/article/2023/05/06-imei-number.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 - **Step 1:** Open the "Phone" app or "Dialer" app on your Android device.
 - **Step 2:** Dial \*#06# on the keypad.
 - **Step 3:** The IMEI number will be displayed on the screen. Note it down or take a screenshot for reference.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 3: Check the ZTE Nubia Flip 5G device Packaging or Receipt
 
 If you still have the original packaging or receipt for your Android device, you may find the IMEI number printed on it. Look for a label or sticker on the box that contains the ZTE Nubia Flip 5G device's details, including the IMEI number.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ### Method 4: Find IMEI on a Removable Battery (for older devices)
 
 For older Android devices with removable batteries, you can find the IMEI number printed on a sticker underneath the battery. To locate it, follow these steps:
 
 ![find imei number 06](https://images.wondershare.com/drfone/article/2023/05/find-imei-on-a-removable-battery.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 - **Step 1:** Power off your Android device.
 - **Step 2:** Remove the back cover and take out the battery.
 - **Step 3:** Look for a sticker or printed text with the IMEI number.
 - **Step 4:** Note it down or take a photo for reference.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 5: Check the SIM Card Tray
 
 Some Android devices have the IMEI number printed on the SIM card tray. To check if your device has this feature:
 
 ![check- -sim card tray](https://images.wondershare.com/drfone/article/2023/05/check-device-sim-card-tray.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 - **Step 1:** Power off your Android device.
 - **Step 2:** Use the SIM card removal tool (or a paperclip) to eject the SIM card tray.
 - **Step 3:** Look for the IMEI number printed on the tray.
 - **Step 4:** Note it down or take a photo for reference.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Does IMEI Change With SIM Card?
 
 No, swapping or changing the SIM card does not alter the IMEI (International Mobile Equipment Identity). The IMEI persists unchanged throughout the ZTE Nubia Flip 5G device's lifetime, functioning as a distinctive identifier solely for that particular device.
@@ -391,7 +470,10 @@ The IMEI is a 15-digit code assigned to each mobile device. It's separate from t
 The IMEI remains the same even if you change SIM cards or switch between different carriers. It's essentially a static identifier tied to the ZTE Nubia Flip 5G device's hardware. It is used by mobile networks and authorities to identify and track devices on the network.
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 4: Does IMEI Change After Factory Reset?
 
@@ -401,9 +483,6 @@ A factory reset wipes the data and settings on your device, returning it to its 
 
 The IMEI is embedded into the hardware of the ZTE Nubia Flip 5G device. It is typically printed on the ZTE Nubia Flip 5G device's packaging or can be found by dialing \*#06# on the phone's keypad. It's a crucial identifier for mobile networks, and authorities use it to uniquely identify and track devices across networks. It remains unchanged even after a factory reset.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_1983472" src="//a.impactradius-go.com/gen-ad-code/5597632/1983472/22993" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Part 5: Requirements for Changing Android IMEI without Root
 
 Before you begin the process of changing your Android IMEI without root, there are a few things you will need:
@@ -436,17 +515,20 @@ This method involves using the Xposed Installer app to install the IMEI Changer 
 - **Step 7:** Tap on the "Apply" button, and then restart your device. Your new IMEI number should now be active.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. Using MobileUncle Tools
 
 ![xposed imei changer pro](https://images.wondershare.com/drfone/article/2023/05/mobiluncle-tools.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [MobileUncle Tools](https://androidmtk.com/download-mobileuncle-apk) is a simple Android application that can retrieve your Android device's information, back up IMEI, change its IMEI, and search for its recovery files. It will also be able to assist you with any rebooting needs and many more!
 
@@ -465,24 +547,27 @@ Follow these steps to change your IMEI using MobileUncle Tools:
 - **Step 11:** Restart your device. The new IMEI number should now be active.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="1456" height="180"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 3\. Using MTK Engineering Mode
 
 ![mtk change imei android](https://images.wondershare.com/drfone/article/2023/05/mtk-engineering-mode-logo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [MTK Engineering Mode](https://play.google.com/store/apps/details?id=com.themonsterit.EngineerStarter&hl=en&gl=US) is another app designed for MediaTek devices that allows users to access hidden settings and options. It was specifically made for Taiwanese device manufacturers such as Tecno, Infinix, Elephone, Oppo, Chuwi, etc. While not fully recommended, reports have been that it works with Android devices made by non-Taiwanese manufacturers. Its clean interface makes navigating the app seamlessly.
 
 Follow these steps to change your IMEI using MTK Engineering Mode:
 
 ![mtk change imei android](https://images.wondershare.com/drfone/article/2023/05/mtk-engineering-mode.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 - **Step 1:** Download and install the MTK Engineering Mode app from a trusted source.
 - **Step 2:** Launch the app and select "MTK Settings".
 - **Step 3:** Scroll down and tap on "Connectivity".
@@ -493,12 +578,30 @@ Follow these steps to change your IMEI using MTK Engineering Mode:
 - **Step 8:** Tap on the "Send AT Command" button. A confirmation message should appear.
 - **Step 9:** Restart your device, and the new IMEI number should be active.
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 7: How to Fix Software Errors Without Changing IMEI Number?
 
 If the reason you are looking for IMEI number change is constant software errors, better ways exist. One of the best choices to resolve software errors on Android devices is to use [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/drfone-toolkit/). It stands as the world's first one-click Android repair tool. Dr.Fone offers an effective solution to address a range of Android system issues.
 
 Its functionality restores the Android system to its normal state. All of this happens without needing any specialized skills. Dr.Fone ensures a hassle-free repair process.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Key Features of Wondershare Dr.Fone
 
 1. Dr.Fone has a high success rate in resolving Android issues.
@@ -506,10 +609,10 @@ Its functionality restores the Android system to its normal state. All of this h
 3. It has cemented its versatility and reliability in system repair for Android devices.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Steps to Repair Software Errors Without Changing IMEI Number via Dr.Fone
 
@@ -521,37 +624,55 @@ Launch the Wondershare Dr.Fone software on your computer and navigate to the "To
 
 ![select device type for repair](https://images.wondershare.com/drfone/guide/system-repair-2.png)
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Step 2: Enter Your ZTE Nubia Flip 5G Device's Details
 
 You'll proceed to a new screen, where clicking "Start" initiates the repair process. As you move to the next window, the platform will identify the "Brand" of the ZTE Nubia Flip 5G device. Then, choose the "Name", "Model", "Country", and "Carrier". If your device is already unlocked, select "OPEN" in the Carrier section. Afterward, mark the checkbox indicating agreement with the warning and readiness to proceed and Click "Next".
 
 ![confirm android device details](https://images.wondershare.com/drfone/guide/android-system-repair-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Step 3: Put Your ZTE Nubia Flip 5G Device into Download Mode
 
 When prompted, follow the on-screen instructions to enter Download Mode on your Android device. The platform will automatically commence downloading the firmware, displaying its details for verification. Opt for "Fix Now" to initiate firmware installation on your Android device.
 
 ![put in download mode](https://images.wondershare.com/drfone/guide/android-system-repair-6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Step 4: Complete the Android Repair Process
 
 Remember, this repair process may result in the erasure of all data. Confirm and proceed by typing in "000000." The system repair progress can be tracked via the progress bar on the screen. Once completed, a prompt window will confirm the process's success. If your Android device restarts correctly, click "Done" to close the tool.
 
 ![fix device by installing firmware](https://images.wondershare.com/drfone/guide/android-system-repair-7.png)
 
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 By using the Android IMEI changer, you will neither lose your data nor need to root your device in your pursuit of changing your device's IMEI number. However, do remember that every situation is different, and there will come a time when you need to root your device before changing your Android's IMEI number. We advise you to use this tutorial only for legal purposes and to check the laws and regulations in your country before attempting to change your device’s IMEI number.
