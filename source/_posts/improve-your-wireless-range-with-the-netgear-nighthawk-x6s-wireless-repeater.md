@@ -1,7 +1,7 @@
 ---
 title: Improve Your Wireless Range with the Netgear Nighthawk X6S Wireless Repeater
-date: 2024-09-03T04:58:58.447Z
-updated: 2024-09-04T04:58:58.447Z
+date: 2024-10-02T02:01:28.519Z
+updated: 2024-10-04T22:56:19.127Z
 categories:
   - BestProducts
 description: This Article Describes Improve Your Wireless Range with the Netgear Nighthawk X6S Wireless Repeater
@@ -43,6 +43,13 @@ thumbnail: https://www.lifewire.com/thmb/SwSiYSvovD8czLmqZWa6Xf3GiwQ=/400x300/fi
 
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/0rm8vUox5EoeaGCQJw0E5XQxwck=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 [View On Amazon $440](https://www.amazon.com/dp/B01M12RE4A?tag=lifewire-onsite-prod-20&ascsubtag=4846418%7Cnd55a891e250641509ef77229001ead8021%7CB01M12RE4A) [View On Walmart $279](https://www.walmart.com/ip/122396083) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-x10-ad7200-tri-band-wi-fi-router-black%2F5610805.p%3FskuId%3D5610805)
@@ -67,12 +74,6 @@ thumbnail: https://www.lifewire.com/thmb/SwSiYSvovD8czLmqZWa6Xf3GiwQ=/400x300/fi
 
  I recently unpacked a Netgear Nighthawk X10 and plugged it into my own wireless network to see how it performs in the real world. Over several hours of intense testing, and a couple of days of more casual use, I tested connection speeds at various distances, ease of setup and use, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Netgear continues to impress with its off-beat designs**
 
  I’ve tested a lot of[Netgear routers](https://www.lifewire.com/best-netgear-routers-4159862) , and this falls somewhere between the stealth bomber angles of the Nighthawk AC series and the slick flying wing designs seen in the Nighthawk RAX routers.
@@ -88,11 +89,12 @@ thumbnail: https://www.lifewire.com/thmb/SwSiYSvovD8czLmqZWa6Xf3GiwQ=/400x300/fi
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/I8vaunCMjxEzWH-oM1U7fsSYe9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_04-abc45a63844e4ebe8f43e4f6facbd601-d54874ec8e984393b51c0bea9803c849.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
 ## **Setup Process: Zero hassle from start to finish**
@@ -106,16 +108,14 @@ Lifewire / Jeremy Laukkonen
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/RfTANl22rAcY7Xy986eYa_62r44=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_02-1721b933d315435f98631847bf3ebb0b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_1983545" src="//a.impactradius-go.com/gen-ad-code/5597632/1983545/22993" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Connectivity: AD7200 tri-band with MU-MIMO and 10G SFP+**
 
  The Netgear Nighthawk X10 AD7200 is an AD7200 tri-band router, which means it’s capable of providing 1733Mbps over a 5GHz wireless network, 800Mbps over a 2.4GHz network, and a blistering 4600Mbps over a 60Hz network. That last one is the key feature here, as only 802.11ad routers like this one feature a super-high-speed 60GHz network.
@@ -130,6 +130,13 @@ Lifewire / Jeremy Laukkonen
 
  For physical connectivity, the Nighthawk X10 features six Ethernet ports, two of which can be used together to create a single 2Gbps connection. You also get two USB 3.0 ports for connecting USB drives and a single 10Gbps SFP+ LAN port. This final port is potentially the most interesting, and also most niche since it allows you to connect a high-speed NAS server, a secondary switch for more Ethernet ports, or other devices that require a bunch of high-speed bandwidth.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network Performance: Fantastic 5GHz performance, WiGig leaves a bit to be desired**
 
  Since this is an 802.11ad router, and the 60GHz WiGig network is the key feature here, that’s where I’m going to start. All of my tests are performed using a 1Gbps Mediacom cable internet connection, so any testing done on an 802.11ad router like this involves data transfer speeds within my network, not the internet connection. For testing purposes, I have a[laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) that I retrofitted with a network interface card featuring the QCA9005 chipset.
@@ -141,6 +148,13 @@ Lifewire / Jeremy Laukkonen
  The bottom line is that this router provides truly awesome speeds at very short distances, but the benefit falls off sharply, and you’d be better off using the 5GHz network even a few feet away.
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/Jwl6BD38cWznmN0op6bpzAmBs_U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_03-4cfe683a7cf94e94b14c0ec2be12da50.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -176,9 +190,6 @@ Lifewire / Jeremy Laukkonen
 
  By way of comparison, the Nighthawk Pro Gaming XR700 has similar specifications, swaps out Plex Media Server for some gaming-centric quality of life (QoL) features, and has a street price that’s close to $400.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_1702748" src="//a.impactradius-go.com/gen-ad-code/5597632/1702748/18544" width="240" height="400" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## **Netgear Nighthawk X10 AD7200 vs. Netgear Nighthawk RAX80**
 
  With an MSRP of $400, and a street price closer to $350, the Nighthawk RAX80 (see on[Amazon](https://www.amazon.com/dp/B01MQDZXA4?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=4846418%7Cnd55a891e250641509ef77229001ead8021%7C) ) is in the same general territory as the Nighthawk X10\. The big difference between these competing Nighthawk devices is that one is an 802.11ad router, and the other is an 802.11ax router.
@@ -193,12 +204,6 @@ Lifewire / Jeremy Laukkonen
 
  The Netgear Nighthawk X10 AD7200 is a bit of a mixed bag since its key feature is so niche. If you really need an 802.11ad router, you may want to look for one with a stronger range. However, this router has fantastic performance on the 5GHz band, and the Plex Media Server implementation is also a very strong plus. If short-range 802.11ad support with excellent fallback 5GHz performance sounds good to you, then this is the router you’re looking for.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Nighthawk X10 AD7200 Router
@@ -226,8 +231,6 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -235,4 +238,22 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-fostering-connection-through-respectful-engagement/"><u>[New] In 2024, Fostering Connection Through Respectful Engagement</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-playlist-turnaround-a-simple-4-step-plan/"><u>[New] YouTube Playlist Turnaround A Simple 4-Step Plan</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-infinix-zero-30-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Infinix Zero 30 5G Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/best-free-apple-iphone-13-pro-imei-checker-by-drfone-ios/"><u>Best Free Apple iPhone 13 Pro IMEI Checker</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/easeus-recexperts-review-for-2024/"><u>EaseUS RecExperts Review for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elite-guide-exceptional-instagram-hlv-designers/"><u>Elite Guide Exceptional Instagram HLV Designers</u></a></li>
+<li><a href="https://article-helps.techidaily.com/enrich-iphone-imagery-top-paid-and-free-camera-app-list-for-2024/"><u>Enrich iPhone Imagery Top Paid & Free Camera App List for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/explore-5-premier-photographers-and-videographers-mixing-tunes/"><u>Explore 5 Premier Photographers & Videographers Mixing Tunes</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-15-plus-3-ways-to-unlock-by-drfone-ios/"><u>How To Unlock iPhone 15 Plus 3 Ways To Unlock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-realme-narzo-n55-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Realme Narzo N55 Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-xiaomi-redmi-note-12-5g-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Xiaomi Redmi Note 12 5G Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-vivo-y77t-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Vivo Y77t Android SIM Unlock APK</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ext-generation-of-video-communities-post-youtube-for-2024/"><u>The Next Generation of Video Communities Post-YouTube for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-the-best-translator-to-translate-videos-online/"><u>Updated In 2024, The Best Translator to Translate Videos Online</u></a></li>
+</ul></div>
 

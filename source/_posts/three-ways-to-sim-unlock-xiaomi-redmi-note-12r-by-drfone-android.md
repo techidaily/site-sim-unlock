@@ -1,7 +1,7 @@
 ---
 title: Three Ways to Sim Unlock Xiaomi Redmi Note 12R
-date: 2024-09-03T04:58:58.581Z
-updated: 2024-09-04T04:58:58.581Z
+date: 2024-09-29T19:34:17.030Z
+updated: 2024-10-04T19:17:33.072Z
 tags: 
   - unlock
   - sim unlock
@@ -69,12 +69,12 @@ If your Xiaomi Redmi Note 12R is hard locked, this is your best bet in getting y
 ![sony unlock screen](https://images.wondershare.com/drfone/article/2016/08/unlock-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<iframe id="iframe_1983575" src="//a.impactradius-go.com/gen-ad-code/5597632/1983575/22993" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
+
 ## Part 4: Xiaomi Redmi Note 12R Unlock App/Software
 
 There are some of us out there who are just not confident with doing things ourselves or trusting our own carrier.
@@ -88,11 +88,12 @@ One that we can attest to is  **[MyMobileUnlocking.com](http://mymobileunlockin
 ![unlock sony xperia](https://images.wondershare.com/drfone/article/2016/08/14708923474346.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 - Select your device's **Phone Brand** (Xiaomi Ericsson) and click the **Confirm brand** button.
 
 ![unlock sony phone](https://images.wondershare.com/drfone/article/2016/08/14708923471100.jpg)
@@ -101,36 +102,25 @@ One that we can attest to is  **[MyMobileUnlocking.com](http://mymobileunlockin
 
 ![network unlock sony xperia](https://images.wondershare.com/drfone/article/2016/08/14708923475791.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030370/7443" target="_top" id="2030370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030370" border="0" alt="https://techidaily.com" width="1456" height="180"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 - Click the **Buy now** button and complete the order form.
 
 ![sim unlock sony xperia](https://images.wondershare.com/drfone/article/2016/08/14708923461372.jpg)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_1938141" src="//a.impactradius-go.com/gen-ad-code/5597632/1938141/22993" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 - Once you are finished, click the **Place order** button.
 
 ![unlock sony xperia](https://images.wondershare.com/drfone/article/2016/08/14708923457478.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 - Make payment for the service. Follow the instructions carefully.
 
 ![sony sim unlock](https://images.wondershare.com/drfone/article/2016/08/14708923455523.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 - You will then get the confirmation and code emailed to you.
 - Insert your new SIM card into your Xiaomi Redmi Note 12R device.
 - Key in the code when it prompts you to do so.
@@ -138,8 +128,12 @@ One that we can attest to is  **[MyMobileUnlocking.com](http://mymobileunlockin
 ![sim network unlock pin sony xperia](https://images.wondershare.com/drfone/article/2016/08/unlock-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: The benefits of an unlocked Xiaomi Redmi Note 12R
 
 If you now know how to unlock Xiaomi Redmi Note 12R but still do not know its advantages, we are here to help.
@@ -154,19 +148,10 @@ Are you thinking "Well, why can't I just buy an unlocked Xiaomi Redmi Note 12R i
 
 For example, in Australia, an unlocked Xiaomi Redmi Note 12R will cost around $499 from any Xiaomi outlet but $0 for the Xiaomi Redmi Note 12R device when you pair it with a 24-month postpaid plan. While this may look attractive now, you may be paying more for a locked Xiaomi Redmi Note 12R in the long run.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Now that you know the three ways of unlocking your Xiaomi Redmi Note 12R, all you need to do is find one that is most compatible with you. Just remember to think of everything through and carefully. Most importantly, if you have a locked device, always seek advice from your carrier to see if this is possible.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How To Unlock SIM Cards Of Xiaomi Redmi Note 12R Without PUK Codes
 
 Unintentionally locking your SIM card with an incorrect PIN is a common occurrence. It’s frustrating because it prevents you from accessing your essential mobile services. Thankfully, Personal Unblocking Key (PUK) codes offer a way to unlock it. However, what happens if you lose them?
@@ -176,17 +161,12 @@ This comprehensive guide explores **how to unlock SIM cards without the PUK Code
 ![back of sim packaging puk code](https://images.wondershare.com/drfone/article/2024/02/unlock-sim-without-puk-code-01.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="1456" height="180"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## Part 1: Official Ways To Unlock SIM Cards With a Lost PUK Code
 
 Locking your SIM card with a forgotten PIN can be a frustrating experience, especially when your trusty PUK code seems to have vanished. While unauthorized methods exist to unlock your SIM card, venturing down that path can lead to complications and potential security risks. This guide prioritizes safe and official methods, ensuring a smooth and secure unlocking process with the help of your mobile carrier.
@@ -199,9 +179,6 @@ The most straightforward approach is contacting your mobile carrier’s customer
 
 ![customer service](https://images.wondershare.com/drfone/article/2024/02/unlock-sim-without-puk-code-02.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Here’s what you’ll need:
 
 - **Ready your information.** Prepare your account number, phone number, and any other relevant details your carrier might require for verification.
@@ -221,9 +198,6 @@ Here’s how it might work:
 
 ![jio website](https://images.wondershare.com/drfone/article/2024/02/unlock-sim-without-puk-code-03.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 - **Step 2:** Different carriers have varying website layouts, so refer to their specific instructions or search features to find the dedicated section for retrieving PUK codes.
 - **Step 3:** Similar to contacting customer service, you might need to verify your account ownership through security questions or other verification methods.
 - **Step 4:** Once verified, your PUK code should be displayed on the screen or sent to your registered email address.
@@ -250,14 +224,17 @@ To use this powerful feature, follow the steps below:
 
 - **Step 1:** Grab Dr.Fone from its official website, install it, and fire it up.
 
-
 - **Step 2:** Head to **Toolbox > Screen Unlock > iOS** (remember, only for iOS devices).
 
 ![dr.fone homepage](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 - **Step 3:** Click **Remove SIM Locked** to start the unlocking process.
 
 ![dr.fone screen unlock page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
@@ -274,9 +251,6 @@ To use this powerful feature, follow the steps below:
 
 ![dr.fone sim jailbreak page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 - **Step 7:** Carefully follow the on-screen instructions to ensure a smooth process. Then, click **Continue**.
 
 ![dr.fone instructions sim operation](https://images.wondershare.com/drfone/guide/remove-iphone-sim-5.png)
@@ -315,9 +289,6 @@ In this step, we have to open Galaxsim by tapping on its icon. You can easily fi
 
 ![galaxsim unlock-Launch Galaxsim Unlock](https://images.wondershare.com/drfone/article/2016/09/14737631847602.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step****3\. Check Status and Unlock**
 
 Once Galaxsim is opened, you have to give your permission to run it onthe Xiaomi Redmi Note 12R device. It will show you the status of the Android phone if it is locked ornot as in the screenshot. Viewing the status,you have to click on Unlock to start the process.
@@ -347,12 +318,6 @@ You will get your phone unlocked now in a moment as shown in the screenshot belo
 - May not support some phones
 - All features are not free to use
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Unlock SIM using Galaxy S Unlock
 
 GalaxyS Unlock is a smart SIM unlocking application developed for Android devices. Like Galaxsim, it also doesn’t use any unlocking code yet, can easily unlock your Android phone. It helps you unlock any Galaxy S, Galaxy S II, Galaxy Tab and Note phone.
@@ -372,8 +337,12 @@ After installing, open Galaxy S Unlock on your phone. It will ask you to save th
 ![galaxy s unlock-Open Galaxy S Unlock](https://images.wondershare.com/drfone/article/2016/09/14737667224488.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 3. Phone Unlocking**
 
 This is the last step and your phone will be unlocked. It will also ask you to restart your phone to finish the process. Once it is unlocked, you can restore the EFS data and insert another SIM for using another network.
@@ -390,13 +359,15 @@ This is the last step and your phone will be unlocked. It will also ask you to r
 - Not supporting all android phone
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Reading this article lets you know the three best ways to sim unlock your Android without code. You can adopt any one of the mentioned methods to remove the restriction imposed on your phone. The steps as you read are simple and easy to follow. The most important fact about these methods is that you don’t needany unlocking code.
-
-
 
 ### [Dr.Fone - Screen Unlock (Android)](https://tools.techidaily.com/wondershare-dr-fone-unlock-android-screen/)
 
@@ -405,15 +376,9 @@ Unlock Your Xiaomi Redmi Note 12R Device in a Flash
 - Pattern, PIN, password, fingerprints & face screen lock can all be unlocked.
 - Bypass Android FRP lock without a PIN or Google account.![New icon](https://images.wondershare.com/drfone/others/new_23.png)
 - Unlock mainstream Android brands like Samsung, Huawei, LG, Xiaomi, etc.
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 - No tech knowledge required, Simple, click-through, process.
 
 **3,981,454** people have downloaded it
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -427,5 +392,21 @@ Unlock Your Xiaomi Redmi Note 12R Device in a Flash
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-game-day-to-hollywood-sports-video-success-story/"><u>[New] In 2024, From Game Day to Hollywood Sports Video Success Story</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-diy-techniques-transforming-smartphones-into-webcams/"><u>[Updated] DIY Techniques Transforming Smartphones Into Webcams</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-step-up-video-standards-choose-among-top-9-webcam-filters/"><u>2024 Approved Step Up Video Standards Choose Among Top 9 Webcam Filters</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/easy-steps-for-harvesting-free-video-frames/"><u>Easy Steps for Harvesting Free Video Frames</u></a></li>
+<li><a href="https://win-answers.techidaily.com/get-back-into-action-expert-solutions-for-fixing-multiversus-startup-errors-on-pc/"><u>Get Back Into Action: Expert Solutions for Fixing MultiVersus Startup Errors on PC</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-realme-gt-5-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Realme GT 5 Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-realme-12-proplus-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your Realme 12 Pro+ 5G Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-oppo-reno-9a-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Oppo Reno 9A online without jailbreak</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-portable-cinematic-vibration-reliever-kit/"><u>In 2024, Portable Cinematic Vibration Reliever Kit</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-xiaomi-mix-fold-3-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Xiaomi Mix Fold 3 Device</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-xiaomi-redmi-note-12-pro-5g-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Xiaomi Redmi Note 12 Pro 5G Device</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/iphoneiphone/"><u>IPhoneビデオの自由な回転・逆回転手順（iPhone、パソコン編集）</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/transform-your-video-appeal-incorporating-own-thumbnails-for-2024/"><u>Transform Your Video Appeal Incorporating Own Thumbnails for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-oppo-a2-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Oppo A2 Device</u></a></li>
+</ul></div>
 
