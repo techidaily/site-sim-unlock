@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Honor X50i Device
-date: 2024-09-29T22:58:53.533Z
-updated: 2024-10-04T18:30:37.364Z
+date: 2024-10-04T07:09:12.536Z
+updated: 2024-10-10T04:05:31.433Z
 tags: 
   - unlock
   - sim unlock
@@ -20,6 +20,13 @@ If your SIM card is disabled, you probably entered the incorrect PIN code too fr
 Your mobile phone display can say “PIN blocked” or "Enter PUK code." PUK stands for PIN Unblocking Key in the PUK code. The PUK code is seldom given to you when you receive your membership in the US. Contact Your Honor X50i provider's customer support if you don't know your PUK code.
 
 ## Part 1: Why Was My Sim Card Blocked?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. 3 times incorrect Pin entered
 
@@ -77,13 +84,6 @@ But happily, a lot of cell companies let you access your account on their app or
 
 ![go to career website and check your sim card puk](https://images.wondershare.com/drfone/article/2022/10/how-to-unlock-puk-blocked-sim-card-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 It shouldn't be an issue if you were utilizing or signed in to the platform before your SIM was disabled. However, if not, you might not be able to access anything since you could be asked to input an OTP to verify your identity.
 
 Please remove the SIM card and try again if you can't access your phone to utilize the app or website because of the SIM lock. After receiving the PUK code, you can re-insert the SIM and input it.
@@ -109,39 +109,25 @@ Dr.Fone enables users to unblock their sim cards within minutes. It is a fast, s
 
 ![screen unlock page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - Use a USB cable to connect your PC and iPhone. After you ensure that your device is connected, click on the "Start" option to begin the sim unlock process.
 
 ![remove sim locks](https://images.wondershare.com/drfone/guide/remove-iphone-sim-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - Now, Dr.Fone will check your iOS device and show its information for verification. Click on the "Unlock Now" option if it's correct.
 
 ![verify your device](https://images.wondershare.com/drfone/guide/remove-iphone-sim-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - The iPhone sim unlock will not work without a jailbreak, so you have to do it before the system start removing the sim lock. You can follow the guide about [how to jailbreak your iPhone](https://drfone.wondershare.com/guide/how-to-jailbreak-ios-on-windows.html) provided by Dr.Fone. The unlock process runs well with devices of iOS 12 to iOS 14.8.1.
 - Now, you have to finish three easy steps to set up your iPhone. First, extract the sim card from your device. And follow the following steps. After this, click on the “Continue” option.
 
 ![insert sim card](https://images.wondershare.com/drfone/guide/remove-iphone-sim-5.png)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - After you complete these steps, Dr.Fone will directly remove the sim lock on your device. You can view the progress on your screen. The process will not take a long time to complete, so you only have to wait for a few minutes.
 - After Dr.Fone ends the sim unlock process, there will be no sim restrictions on your iOS device. It means you can use sim cards from any network carrier. Now, click on the "Done" option after your task is complete.
@@ -160,13 +146,6 @@ When you buy a phone, your matter of concern is whether to buy a locked phone or
 
 If you’ve bought a locked phone and facing problems, you need not worry as there are multiple ways to unlock your phone. For that, this article has provided the solution to your issue in the most intelligible way.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: Difference between Unlocking, Rooting, and Jailbreaking
 
 This part of the article shall differ from three very similar terms, Unlocking, Rooting, and Jailbreaking, to clear your confusion.
@@ -174,13 +153,6 @@ This part of the article shall differ from three very similar terms, Unlocking, 
 ### Unlocking
 
 ![sim unlock](https://images.wondershare.com/drfone/article/2023/09/sim-unlock.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Unlocking a phone means making it compatible with other SIM carriers. An unlocked phone is not pinned to a single SIM carrier; rather, it lets you switch carriers. SIM Card lets your phone connect to a specific network, but it depends on your phone's hardware compatibility. If it's not compatible with a specific network, then nothing can change that.
 
@@ -193,6 +165,13 @@ To unlock your phone, you have to enter a specific code to remove the restrictio
 [Rooting a phone](https://drfone.wondershare.com/root/reasons-to-root-android.html) means gaining “root access” on another phone. **This process works for Android only.** However, it can also be used on some specific Linux-based devices. Root access allows you to do almost everything on the phone you’ve gained access to, like installing or uninstalling applications or changing the settings.
 
 Root access is not all fun, and games as this process will lead you to the security architect of your operating system, which will be hard to deal with even if you're a professional. So, it’s important to be careful with this process, else you will have to bear the consequences.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Jailbreaking (for iOS)
 
@@ -258,6 +237,13 @@ Now you’ll be given two options on the screen, “PayPal” or “TrialPay”.
 
 You’ll receive an email immediately, and all you have to do is, enter the unlock code, and there you have it, your SIM unlocked.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bonus Tips: How to Unlock Android Screen Precisely with Dr.Fone Screen Unlock?
 
 Wondershare [Dr.Fone - Screen Unlock (Android)](https://tools.techidaily.com/wondershare-dr-fone-unlock-android-screen/) has yet, another time, taken the lead in this matter too. This convenient multifunctional software is a go-to software for everyone who has knowledge of tech as it provides solutions for your software and hardware problems under one roof. While it may seem like big trouble on your end, it's just a matter of a few minutes for Dr.Fone to fix your issue.
@@ -286,6 +272,13 @@ Select “Screen Unlock” on the home interface among the other given options. 
 
 ![select unlock android screen option](https://images.wondershare.com/drfone/guide/android-screen-unlock-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Step 3: Confirm your Device**
 
 Now, select your Device to proceed on. Dr.Fone will guide your Android device into the specific mode automatically.
@@ -297,13 +290,6 @@ Now, select your Device to proceed on. Dr.Fone will guide your Android device in
 Once your device model matches and your device enters the specific mode, the software will automatically start unlocking. This way, your password will be removed successfully, and you can easily unlock and access your Android device.
 
 ![initiate the unlock process](https://images.wondershare.com/drfone/guide/screen-unlock-any-android-device-6.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: Tip to Avoid the SIM Lock Issue
 
@@ -320,6 +306,13 @@ As a crux, an unlocked phone is a better choice than a locked phone. We would pe
 When we have an Android phone, we are connected to the world, and everything goes fine. But when we find that our phone is locked to a specific network, and it doesn’t support any other SIM operator, a pile of issues start arising. Unlocking SIM has many benefits: the main benefitis that your phone gets freedom from network restrictions, and you can use anyother GSM network which you need as per your need and move anywhere with your lovely phone. An unlocked phone also helps you save money in many ways. Therefore,it is essential for every single Android user to know the very ways of unlocking his/her Android Phone.
 
 Today, we are showing you 2 ways to [sim unlock](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/) Android phone without [sim network unlock pin](https://drfone.wondershare.com/unlock/unlock-samsung-sim-network-unlock-pin.html). We will show you each method with clear screenshots and will also point outthe pros and cons of each method.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: Unlock SIM Using Galaxsim Unlock
 
@@ -344,19 +337,6 @@ In this step, we have to open Galaxsim by tapping on its icon. You can easily fi
 Once Galaxsim is opened, you have to give your permission to run it onthe Honor X50i device. It will show you the status of the Android phone if it is locked ornot as in the screenshot. Viewing the status,you have to click on Unlock to start the process.
 
 ![galaxsim unlock-Check Status and Unlock](https://images.wondershare.com/drfone/article/2016/09/14737632402819.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step****4\. Phone Unlocked**
 
@@ -418,6 +398,13 @@ This is the last step and your phone will be unlocked. It will also ask you to r
 
 Reading this article lets you know the three best ways to sim unlock your Android without code. You can adopt any one of the mentioned methods to remove the restriction imposed on your phone. The steps as you read are simple and easy to follow. The most important fact about these methods is that you don’t needany unlocking code.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### [Dr.Fone - Screen Unlock (Android)](https://tools.techidaily.com/wondershare-dr-fone-unlock-android-screen/)
 
 Unlock Your Honor X50i Device in a Flash
@@ -425,6 +412,13 @@ Unlock Your Honor X50i Device in a Flash
 - Pattern, PIN, password, fingerprints & face screen lock can all be unlocked.
 - Bypass Android FRP lock without a PIN or Google account.![New icon](https://images.wondershare.com/drfone/others/new_23.png)
 - Unlock mainstream Android brands like Samsung, Huawei, LG, Xiaomi, etc.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 - No tech knowledge required, Simple, click-through, process.
 
@@ -444,16 +438,22 @@ Unlock Your Honor X50i Device in a Flash
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-visual-purity-how-to-exclude-backgrounds-in-recordings/"><u>[New] In 2024, Visual Purity How to Exclude Backgrounds in Recordings</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-rhythmic-resonance-how-to-choose-music-for-online-fame-for-2024/"><u>[Updated] Rhythmic Resonance How to Choose Music for Online Fame for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-secret-life-of-a-designer-canvas-hidden-edits-for-2024/"><u>[Updated] The Secret Life of a Designer Canva's Hidden Edits for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-honor-x7b-is-unlocked-by-drfone-android/"><u>How To Check if Your Honor X7b Is Unlocked</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-vivo-s18e-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Vivo S18e in Minutes | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-oppo-a58-4g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Oppo A58 4G Without PUK Codes</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-zte-nubia-z60-ultra-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your ZTE Nubia Z60 Ultra Is Unlocked</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-oppo-reno-11-pro-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Oppo Reno 11 Pro 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-lava-blaze-2-pro-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Lava Blaze 2 Pro Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-prime-day-discounts-unmissable-savings-on-benq-screens-and-projectors/"><u>Top Prime Day Discounts: Unmissable Savings on BenQ Screens and Projectors</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/combining-youtube-and-imovie-for-professional-results/"><u>Combining YouTube and iMovie for Professional Results</u></a></li>
+<li><a href="https://games-able.techidaily.com/geforce-now-your-portal-to-play-fortnite-on-ios/"><u>GeForce Now: Your Portal to Play Fortnite on iOS</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-samsung-galaxy-m34-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your Samsung Galaxy M34 5G Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-tecno-spark-10-pro-is-unlocked-by-drfone-android/"><u>How To Check if Your Tecno Spark 10 Pro Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-14-pro-max-official-method-to-unlock-your-iphone-14-pro-max-by-drfone-ios/"><u>How To Unlock iPhone 14 Pro Max Official Method to Unlock Your iPhone 14 Pro Max</u></a></li>
+<li><a href="https://games-able.techidaily.com/ignite-the-power-within-boosting-ps4-performance/"><u>Ignite the Power Within: Boosting PS4 Performance</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-tecno-phantom-v-fold-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Tecno Phantom V Fold Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-t-mobile-apple-iphone-13-pro-max-online-without-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock T-Mobile Apple iPhone 13 Pro Max online without SIM Card?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-poco-m6-pro-4g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Poco M6 Pro 4G Device</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-apple-iphone-6-and-android-phones-by-drfone-ios/"><u>In 2024, Top IMEI Unlokers for Apple iPhone 6 and Android Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-oneplus-ace-2-pro-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your OnePlus Ace 2 Pro Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-motorola-moto-g84-5g-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Motorola Moto G84 5G Device</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-your-daily-diary-staying-fresh-and-avoiding-common-mistakes/"><u>In 2024, Your Daily Diary Staying Fresh & Avoiding Common Mistakes</u></a></li>
+<li><a href="https://win-answers.techidaily.com/master-your-fortnite-experience-tackle-persistent-pc-crashes/"><u>Master Your Fortnite Experience: Tackle Persistent PC Crashes</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-poco-m6-pro-5g-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Poco M6 Pro 5G Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solved-issues-disco-elysium-no-longer-crashing-on-windowsmaclinux-platforms/"><u>Solved Issues: Disco Elysium No Longer Crashing on Windows/Mac/Linux Platforms</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-android-video-editor-showdown-top-10-free-and-paid-apps/"><u>Updated 2024 Approved Android Video Editor Showdown Top 10 Free and Paid Apps</u></a></li>
 </ul></div>
 
