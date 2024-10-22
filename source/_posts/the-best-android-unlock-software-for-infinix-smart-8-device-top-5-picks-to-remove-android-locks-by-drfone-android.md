@@ -1,7 +1,7 @@
 ---
 title: The Best Android Unlock Software For Infinix Smart 8 Device Top 5 Picks to Remove Android Locks
-date: 2024-10-15T16:22:15.370Z
-updated: 2024-10-16T16:47:21.111Z
+date: 2024-10-20T23:06:28.427Z
+updated: 2024-10-21T18:05:52.341Z
 tags: 
   - unlock
   - sim unlock
@@ -80,6 +80,13 @@ This wonderful utility is ideal to unlock cell phones. You can choose between No
 
 ![nokia free unlock code calculator](https://images.wondershare.com/drfone/article/2023/05/nokiafree-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Step 7.** The code is calculated to release your cell phone.
 
 ## Top 3: Multi Unlock Software
@@ -104,13 +111,6 @@ Before you begin:
 
 ![multi unlock software](https://images.wondershare.com/drfone/article/2023/05/multi-unlock.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 1. Download the software and connect your phone to a PC**
 
 - Install your Motorola Iden Drivers. Go to Start> then All Programs > Nextgen Server> then iDen Code Reader> then iDen Drivers. Power connect the phone via a USB cable.
@@ -127,10 +127,10 @@ Before you begin:
 - Unlock CNS New or Old accordingly.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Top 4: iMobie DroidKit
@@ -142,19 +142,6 @@ To understand how to unlock your Android software with iMobie DroidKit, you need
 - **Step 1.** Download and install iMobie DroidKit on your computer. After connecting your device with the PC via USB, select the "Screen Unlocker" mode.
 
 ![launch imobie to unlock device](https://images.wondershare.com/drfone/article/2023/05/imobie-droidkit-1.png)
-
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - **Step 2.** The platform prepares a configuration file for your device. Once prepared, tap on "Remove Now".
 
@@ -178,13 +165,6 @@ You need to follow the steps explained below to understand the process of unlock
 - **Step 2.** The platform demands confirmation before starting the process. Click ‘Start’ to initiate the process.
 
 ![confirm removal of lock ](https://images.wondershare.com/drfone/article/2023/05/passfab-android-unlock-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - **Step 3.** The platform provides a prompt showing the completion of the task. The Android device will be successfully unlocked.
 
@@ -212,6 +192,13 @@ If your device is Samsung or LG, Dr.Fone could help unlock your screen without e
 
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg)safe & secure
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 To conclude, for those looking for the best Android unlock software in 2024, our top recommendation is Dr.Fone - Screen Unlock (Android). With its exceptional features and high success rate, it outshines the competition. Whether you need to remove a PIN, pattern, or fingerprint lock, Dr.Fone offers a reliable solution. For more information and answers to frequently asked questions about Android unlocking, refer to our [comprehensive guide on unlocking Android devices](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/). Unlock your Android device with confidence using the top-rated Dr.Fone - Screen Unlock (Android).
@@ -221,13 +208,6 @@ To conclude, for those looking for the best Android unlock software in 2024, our
 Isn't it so frustrating when you try to change your SIM or your network, but just can't because your phone is locked under contract? Phones are our life source in this global age, it's our tether to reality, to the world! But if you have a carrier locked phone, then that connection is basically under contract by an external agency! You can't change your networks, there are limitations on how you use your phone, and when you have to travel abroad you have no option other than paying the roaming charges. If you, say, have an iPhone 5c and have these frustrations, it's likely you're already wondering how to unlock the iPhone 5c.
 
 Chances are that if you've had a carrier locked phone for a while, you might have already forgotten what cellular freedom feels like. But we're here to remind you. All you have to do is break that carrier-lock, and you're good to go. However, you should be careful when doing so, cause if you try using a jailbreaking technique, it could have major repercussions. So we're here to give you some valuable advice about how to unlock iPhone 5, iPhone 5c, or even Android phones.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: Unlock SIM Card on Infinix Smart 8 via jailbreak
 
@@ -274,6 +254,13 @@ Fast SIM Unlock for iPhone
 
 **3981454** people have downloaded it
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to use Dr.Fone SIM Unlock Service
 
 **Step 1.** Download Dr.Fone-Screen Unlock and click on “Remove SIM Locked”.
@@ -286,6 +273,13 @@ Fast SIM Unlock for iPhone
 
 ![screen unlock agreement](https://images.wondershare.com/drfone/guide/remove-iphone-sim-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4.** Turn off the popup page and go to “Settings → Profile Downloaded”. Then choose “Install” and type your screen passcode.
 
 **Step 5.** Select “Install” on the top right and then click the button again at the bottom. After finishing the installation, turn to “Settings → General”.
@@ -295,13 +289,6 @@ Fast SIM Unlock for iPhone
 Next, detailed steps will show on your iPhone screen, just follow it! And Dr.Fone will provide “Remove Setting” services for you after the SIM lock removed to enable Wi-Fi as normal. Click on our [iPhone SIM Unlock guide](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/) to learn more.
 
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg)safe & secure
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to unlock SIM Card on iPhone and Android without jailbreak
 
@@ -329,6 +316,13 @@ Well so now that you know all the basics of unlocking carrier phones and the ris
 
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg)safe & secure
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Solutions for Infinix  Network Unlock
 
 If the network of your Infinix  phone is locked, this article is for you. SIM-locked phones can be quite troublesome to deal with. You cannot really transfer to a network you prefer or else, it will just not work. Even though it is a little time-consuming to unlock Infinix  network, it is not impossible. But you may require some efficient methods to fix your troubles. There are a number of ways you can consider and use to get Infinix  unlock phone. In this article, you will get to know all the methods you can use to have your Infinix Smart 8 unlocked.
@@ -340,15 +334,22 @@ Phones by Infinix  are rather popular among people and even now, people continue
 Infinix  phone network unlock means you will be able to shift your Infinix  to another network that you prefer and use it without experiencing any restrictions. Otherwise, you will be unable to make any calls and will have connectivity problems. A key benefit of having your Infinix Smart 8 unlocked is you will be able to move to the network of your choice without any problem. In addition to it, you will not face any connectivity problems.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Unlock your Infinix  network with 3 Methods
 
 These are the three methods you can consider to have your Infinix Smart 8 unlocked:
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Get in touch with your network provider
 
@@ -388,13 +389,6 @@ It will take around 1-8 working days to have your Infinix Smart 8 Unlocked. You 
 
 ![sim unlock](https://images.wondershare.com/drfone/article/2022/08/htc-network-unlock-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - Change the SIM card and turn your phone on. After that, you need to enter the unlock code into your phone and it will get your Infinix Smart 8 unlocked
 
 ### 3\. Some third-party apps
@@ -423,22 +417,24 @@ Overall, if you want to unlock Infinix , there are a number of methods that you 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-unparalleled-editing-experience-vimeo-edition-awaits/"><u>[Updated] In 2024, Unparalleled Editing Experience Vimeo Edition Awaits</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Oppo A78 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/icloud-photo-management-how-to-selectively-erase-and-preserve-memories-locally/"><u>ICloud Photo Management: How to Selectively Erase and Preserve Memories Locally</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-cutting-edge-templates-unlocking-your-videos-potential/"><u>In 2024, Cutting-Edge Templates Unlocking Your Video's Potential</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-realme-gt-5-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Realme GT 5 FRP?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-honor-play-40c-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Honor Play 40C Android SIM Unlock APK</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-realme-narzo-60-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Realme Narzo 60 5G IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-realme-11-proplus-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Realme 11 Pro+ Device</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1726027155908-obs5/"><u>OBSツールが機能しないとき、あなたにぴったり5つのヒント</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-realme-11-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Realme 11 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-xiaomi-13-ultra-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Xiaomi 13 Ultra Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ultimate-tutorial-for-burning-dvd-discs-using-windows-11-illustrated-steps-inside/"><u>Ultimate Tutorial for Burning DVD Discs Using Windows 11 - Illustrated Steps Inside</u></a></li>
-<li><a href="https://fox-that.techidaily.com/unlock-the-solution-to-ios-16-depth-effect-problems-learn-from-our-7-step-guide/"><u>Unlock the Solution to iOS 16 Depth Effect Problems - Learn From Our 7-Step Guide</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-honor-90-lite-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Honor 90 Lite Phones</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-nubia-red-magic-9-pro-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Nubia Red Magic 9 Pro Phones</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-infinix-note-30-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Infinix Note 30 Device</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-honor-100-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Honor 100 Phone Network-Ready</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ive-deep-into-designing-dynamic-youtube-live-thumbnails-for-2024/"><u>[New] Dive Deep Into Designing Dynamic YouTube Live Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-download-facebook-story-5-methods-for-2024/"><u>[New] How to Download Facebook Story [5 Methods] for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-media-creator-win8/"><u>[New] In 2024, Ultimate Media Creator Win8</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-learn-the-tricks-of-the-trade-for-flipping-films-in-vlc-for-2024/"><u>[New] Learn the Tricks of the Trade for Flipping Films in VLC for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-step-by-step-tips-for-turning-gopro-into-professionals-best-work-for-2024/"><u>[New] Step-by-Step Tips for Turning GoPro Into Professionals' Best Work for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-best-subtitle-manipulators-the-top-10-list-online-for-2024/"><u>[Updated] Best Subtitle Manipulators - The Top 10 List (Online) for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/capturing-pc-gaming-moments-6-innovative-techniques/"><u>Capturing PC Gaming Moments 6 Innovative Techniques</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/double-delight-endless-looping-of-youtube-videos-for-tvs-for-2024/"><u>Double Delight Endless Looping of YouTube Videos for TVs for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-xiaomi-redmi-note-13-5g-device-sim-by-drfone-android/"><u>Easily Unlock Your Xiaomi Redmi Note 13 5G Device SIM</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-v27-is-unlocked-by-drfone-android/"><u>How To Check if Your Vivo V27 Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-15-pro-max-withwithout-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 15 Pro Max with/without SIM Card</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-mac-users-guide-to-snapchat-integration/"><u>In 2024, Mac Users' Guide to Snapchat Integration</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-lava-yuva-3-pro-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Lava Yuva 3 Pro Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-honor-x7b-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Honor X7b Device</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-nokia-c210-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Nokia C210 Device</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-vivo-y100-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Vivo Y100 Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-motorola-defy-2-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Motorola Defy 2 IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-oneplus-12r-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On OnePlus 12R Device</u></a></li>
 </ul></div>
 
