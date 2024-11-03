@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Honor 100 Device
-date: 2024-10-25T01:43:04.243Z
-updated: 2024-10-27T22:53:08.464Z
+date: 2024-10-27T22:42:48.654Z
+updated: 2024-11-02T22:53:50.588Z
 tags: 
   - unlock
   - sim unlock
@@ -43,6 +43,13 @@ You got an email with multiple codes, including PUK1, PIN2, and PUK2.
 
 ![go to settings and customize to unblock sim](https://images.wondershare.com/drfone/article/2022/10/how-to-unlock-puk-blocked-sim-card-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your PIN is locked, use PUK1 to unlock it.
 
 Only a few phones employ PIN2 and PUK2 codes to restrict access to certain SIM card functionalities.
@@ -51,20 +58,14 @@ PIN2: The default code for your SIM card; If this code has been altered, use the
 
 PUK2: Your PIN2's unlock code if it has been blocked.
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How Can I Have My PUK Code To Unlock Sim Card?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Get it from sim card packaging
 
@@ -76,15 +77,22 @@ You probably have memories of the flat plastic package you got when you bought a
 
 ![find the pin code on flat plastic package](https://images.wondershare.com/drfone/article/2022/10/how-to-unlock-puk-blocked-sim-card-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Please look around your home for the package and look on the back for the key. On some older packaging, it could be sealed behind a scratchable region, whereas on other, more recent ones, you might find it unsealed.
 
 ![look at the back of the package and find puk code](https://images.wondershare.com/drfone/article/2022/10/how-to-unlock-puk-blocked-sim-card-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In either case, the correct PUK has 8 numbers and should be simple to enter to unlock your SIM card.
@@ -109,13 +117,6 @@ Use a different phone to call your customer service number and describe the issu
 
 ![solve the sim card not accessed issue](https://images.wondershare.com/drfone/article/2022/10/how-to-unlock-puk-blocked-sim-card-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 However, customer service won't release the code if you can't back yourself up. And at that point, there's probably nothing further you can do. Therefore, make sure you have some information, such as your name, address, date of birth, etc., before you call them.
 
 ## Part 4: Easy Tool For Sim Card Unlock
@@ -129,16 +130,16 @@ Dr.Fone enables users to unblock their sim cards within minutes. It is a fast, s
 
 ![screen unlock page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - Use a USB cable to connect your PC and iPhone. After you ensure that your device is connected, click on the "Start" option to begin the sim unlock process.
 
 ![remove sim locks](https://images.wondershare.com/drfone/guide/remove-iphone-sim-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 - Now, Dr.Fone will check your iOS device and show its information for verification. Click on the "Unlock Now" option if it's correct.
 
@@ -153,6 +154,19 @@ Dr.Fone enables users to unblock their sim cards within minutes. It is a fast, s
 - After Dr.Fone ends the sim unlock process, there will be no sim restrictions on your iOS device. It means you can use sim cards from any network carrier. Now, click on the "Done" option after your task is complete.
 
 ![sim lock removed](https://images.wondershare.com/drfone/guide/remove-iphone-sim-7.png)
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -229,13 +243,6 @@ To use this powerful feature, follow the steps below:
 
 ![dr.fone homepage](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - **Step 3:** Click **Remove SIM Locked** to start the unlocking process.
 
 ![dr.fone screen unlock page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
@@ -243,13 +250,6 @@ To use this powerful feature, follow the steps below:
 - **Step 4:** Click **Start** when you see this page.
 
 ![dr.fone sim unlock page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - **Step 5:** Verify your device details and hit **Unlock Now.**
 
@@ -262,6 +262,13 @@ To use this powerful feature, follow the steps below:
 - **Step 7:** Carefully follow the on-screen instructions to ensure a smooth process. Then, click **Continue**.
 
 ![dr.fone instructions sim operation](https://images.wondershare.com/drfone/guide/remove-iphone-sim-5.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 - **Step 8:** Once finished, click **Done** to enjoy your unlocked SIM card!
 
@@ -342,16 +349,16 @@ Fast SIM Unlock for iPhone
 
 ![screen unlock agreement](https://images.wondershare.com/drfone/guide/remove-iphone-sim-7.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Next, detailed steps will show on your iPhone screen, just follow it! And Dr.Fone will provide “Remove Setting” services for you after the SIM lock removed to enable Wi-Fi as normal. Click on our [iPhone SIM Unlock guide](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/) to learn more.
 
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg)safe & secure
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to unlock SIM Card on iPhone and Android without jailbreak
 
@@ -379,13 +386,6 @@ Well so now that you know all the basics of unlocking carrier phones and the ris
 
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg)safe & secure
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -400,20 +400,24 @@ Well so now that you know all the basics of unlocking carrier phones and the ris
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-elite-screen-grabber-for-windows-10/"><u>[New] Elite Screen Grabber for Windows 10</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-handheld-smooth-movies-maker/"><u>[New] Handheld Smooth Movies Maker</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-best-10-volume-elevators-for-windows-ios-and-android/"><u>[Updated] 2024 Approved Best 10 Volume Elevators for Windows, iOS & Android</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-premier-photo-toolkit-inserting-text-effortlessly/"><u>[Updated] 2024 Approved Premier Photo Toolkit Inserting Text Effortlessly</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-yuneecs-typhoon-h-unmasked-detailed-uav-analysis/"><u>2024 Approved Yuneec's Typhoon H Unmasked Detailed UAV Analysis</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/guide-transforming-mbr-storage-into-gpt-directly-on-a-windows-system/"><u>Guide: Transforming MBR Storage Into GPT Directly on a Windows System</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-honor-90-gt-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Honor 90 GT Without PUK Codes</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-tecno-phantom-v-flip-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Tecno Phantom V Flip Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-oppo-find-n3-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Oppo Find N3 online without jailbreak</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-sony-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Sony Phone? Unlock It Now</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-vivo-s18e-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Vivo S18e IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://common-error.techidaily.com/mastering-the-art-of-correcting-opengl-faults-in-minecraft/"><u>Mastering the Art of Correcting OpenGL Faults in Minecraft</u></a></li>
-<li><a href="https://extra-information.techidaily.com/pioneering-the-vr-world-essential-gear-ranked/"><u>Pioneering the VR World Essential Gear Ranked</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-samsung-galaxy-a23-5g-by-drfone-android/"><u>Three Ways to Sim Unlock Samsung Galaxy A23 5G</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-lava-blaze-curve-5g-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Lava Blaze Curve 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-unveiling-tiktok-to-twitter-conversion/"><u>[New] In 2024, Unveiling TikTok to Twitter Conversion</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-free-youtube-channel-art-templates/"><u>[Updated] Free YouTube Channel Art Templates</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-optimize-memory-retention-using-mematics-solution/"><u>[Updated] Optimize Memory Retention Using Mematic's Solution</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-recover-missing-audio-from-tweeted-videos-for-2024/"><u>[Updated] Recover Missing Audio From Tweeted Videos for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easily-install-your-hp-deskjet-2600-on-win-7810-with-free-driver-downloads-here/"><u>Easily Install Your HP Deskjet 2600 on Win 7/8/10 with Free Driver Downloads Here!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/generative-ai-demystified-essential-tips-for-parents-on-using-chatgpt-wisely/"><u>Generative AI Demystified: Essential Tips for Parents on Using ChatGPT Wisely</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-contacts-on-iphone-15-4-methods-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Restore Contacts on iPhone 15 (4 Methods) | Stellar</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-advanced-vocal-tuners-for-android-and-ios/"><u>In 2024, Advanced Vocal Tuners for Android and iOS</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-poco-m6-pro-4g-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Poco M6 Pro 4G Phone Hassle-Free</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-realme-11-proplus-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Realme 11 Pro+ Phone Hassle-Free</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-realme-12-proplus-5g-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Realme 12 Pro+ 5G Phone Hassle-Free</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-realme-c51-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Realme C51 Phone Hassle-Free</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-realme-c55-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Realme C55 Phone Hassle-Free</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-realme-gt-3-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Realme GT 3 Phone Hassle-Free</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-realme-note-50-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Realme Note 50 Phone Hassle-Free</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-realme-v30t-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Realme V30T Phone Hassle-Free</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/strategize-execute-inspire-the-ultimate-guide-to-instagram-marketing-for-2024/"><u>Strategize, Execute, Inspire The Ultimate Guide to Instagram Marketing for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-top-performing-cable-modems-of-2024-you-cant-miss/"><u>The Top-Performing Cable Modems of 2024 You Can’t Miss</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/why-youtube-tv-is-a-game-changer-in-streaming/"><u>Why YouTube TV Is a Game-Changer in Streaming</u></a></li>
 </ul></div>
 
