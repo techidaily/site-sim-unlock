@@ -1,7 +1,7 @@
 ---
 title: Top 10 Honor Magic5 Ultimate Android SIM Unlock APK
-date: 2024-09-29T01:16:19.040Z
-updated: 2024-10-05T02:06:12.823Z
+date: 2024-11-07T01:11:59.328Z
+updated: 2024-11-11T02:07:29.708Z
 tags: 
   - unlock
   - sim unlock
@@ -31,13 +31,6 @@ This is another Android app that can help you unlock your device's SIM. It is fa
 
 ![SIM Unlock APK](https://images.wondershare.com/drfone/article/2016/06/14670275632519.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Device SIM unlock
 
 This is another app that can be used to unlock a whole host of devices including almost all Samsung Models, LG models, HTC, Alcatel and Sony devices. It is also very easy to use and has received quite a lot of good reviews from those who have used it.
@@ -52,13 +45,6 @@ Unlock Your Honor Magic5 Ultimate Device in a Flash
 - Bypass Android FRP lock without a PIN or Google account.![New icon](https://images.wondershare.com/drfone/others/new_23.png)
 - Unlock mainstream Android brands like Samsung, Huawei, LG, Xiaomi, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 - No tech knowledge required, Simple, click-through, process.
 
 **3,981,454** people have downloaded it
@@ -68,13 +54,6 @@ Unlock Your Honor Magic5 Ultimate Device in a Flash
 This is an app that will unlock your device and allow you to use it with just about any other app. It is an app that is designed to work with Samsung devices only although it does support all Samsung devices. It works by generating a code that can be entered on to the Honor Magic5 Ultimate device to unlock the SIM. The app itself is free to download but you have to pay for the unlock codes. Payment can be made via PayPal or credit card.
 
 ![SIM Unlock APK](https://images.wondershare.com/drfone/article/2016/06/14670278485277.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. SIM unlock for HTC phones
 
@@ -116,19 +95,6 @@ This app has been around providing unlocking services for over 10 years. It is a
 
 ![SIM Unlock APK](https://images.wondershare.com/drfone/article/2016/06/14670281024156.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 We hope you are able to find an app to unlock your device. Let us know how the app of your choice worked out for you.
 
 ## Part 2. Best Android SIM Unlock Service
@@ -152,10 +118,10 @@ If your SIM card is disabled, you probably entered the incorrect PIN code too fr
 Your mobile phone display can say “PIN blocked” or "Enter PUK code." PUK stands for PIN Unblocking Key in the PUK code. The PUK code is seldom given to you when you receive your membership in the US. Contact Your Honor Magic5 Ultimate provider's customer support if you don't know your PUK code.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: Why Was My Sim Card Blocked?
@@ -202,11 +168,25 @@ You probably have memories of the flat plastic package you got when you bought a
 
 ![find the pin code on flat plastic package](https://images.wondershare.com/drfone/article/2022/10/how-to-unlock-puk-blocked-sim-card-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Please look around your home for the package and look on the back for the key. On some older packaging, it could be sealed behind a scratchable region, whereas on other, more recent ones, you might find it unsealed.
 
 ![look at the back of the package and find puk code](https://images.wondershare.com/drfone/article/2022/10/how-to-unlock-puk-blocked-sim-card-4.jpg)
 
 In either case, the correct PUK has 8 numbers and should be simple to enter to unlock your SIM card.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Have it from carrier website
 
@@ -245,6 +225,13 @@ Dr.Fone enables users to unblock their sim cards within minutes. It is a fast, s
 
 ![remove sim locks](https://images.wondershare.com/drfone/guide/remove-iphone-sim-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - Now, Dr.Fone will check your iOS device and show its information for verification. Click on the "Unlock Now" option if it's correct.
 
 ![verify your device](https://images.wondershare.com/drfone/guide/remove-iphone-sim-3.png)
@@ -259,18 +246,18 @@ Dr.Fone enables users to unblock their sim cards within minutes. It is a fast, s
 
 ![sim lock removed](https://images.wondershare.com/drfone/guide/remove-iphone-sim-7.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 People who still have their SIM pack shouldn't have trouble figuring out "how to acquire a PUK code to unlock a SIM card". However, for those without it, getting in touch with customer service may be the only option. As long as your SIM card has accurate information, this process should be simple.
 
 Once you have the proper PUK to [unlock your SIM card](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/), don't be reluctant to write it down somewhere you can easily find it later. It might not be a terrible idea to store it on your Google Drive. This way, you will not see PUK blocked, as you know how to unlock PUK blocked sim card.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Best Android Unlock Software For Honor Magic5 Ultimate Device: Top 5 Picks to Remove Android Locks
 
@@ -307,6 +294,13 @@ Get Rid of Your Android Lock Screen in No Time
 
 ![Dr.Fone - Screen Unlock (Android)](https://images.wondershare.com/drfone/guide/android-screen-unlock-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2. Select Device Brand and Put Device into Specific Mode**
 
 - Choose the Honor Magic5 Ultimate device brand to unlock the screen, and your Android device will automatically enter the specified modee.
@@ -338,13 +332,6 @@ This wonderful utility is ideal to unlock cell phones. You can choose between No
 - **Step 6.** Under options, choose IMEI Checksum Verification or Nokia Expert, Stretched, or Select Mode from IMEI.
 
 ![nokia free unlock code calculator](https://images.wondershare.com/drfone/article/2023/05/nokiafree-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - **Step 7.** The code is calculated to release your cell phone.
 
@@ -395,6 +382,13 @@ To understand how to unlock your Android software with iMobie DroidKit, you need
 
 ![launch imobie to unlock device](https://images.wondershare.com/drfone/article/2023/05/imobie-droidkit-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 - **Step 2.** The platform prepares a configuration file for your device. Once prepared, tap on "Remove Now".
 
 ![prepare a configuration file](https://images.wondershare.com/drfone/article/2023/05/imobie-droidkit-2.png)
@@ -417,13 +411,6 @@ You need to follow the steps explained below to understand the process of unlock
 - **Step 2.** The platform demands confirmation before starting the process. Click ‘Start’ to initiate the process.
 
 ![confirm removal of lock ](https://images.wondershare.com/drfone/article/2023/05/passfab-android-unlock-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - **Step 3.** The platform provides a prompt showing the completion of the task. The Android device will be successfully unlocked.
 
@@ -451,6 +438,13 @@ If your device is Samsung or LG, Dr.Fone could help unlock your screen without e
 
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg)safe & secure
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 To conclude, for those looking for the best Android unlock software in 2024, our top recommendation is Dr.Fone - Screen Unlock (Android). With its exceptional features and high success rate, it outshines the competition. Whether you need to remove a PIN, pattern, or fingerprint lock, Dr.Fone offers a reliable solution. For more information and answers to frequently asked questions about Android unlocking, refer to our [comprehensive guide on unlocking Android devices](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/). Unlock your Android device with confidence using the top-rated Dr.Fone - Screen Unlock (Android).
@@ -469,22 +463,22 @@ To conclude, for those looking for the best Android unlock software in 2024, our
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-techniques-in-creating-youtube-thumbnails-that-stand-out/"><u>[New] 2024 Approved Essential Techniques in Creating YouTube Thumbnails That Stand Out</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/anger-lurking-online-spotting-the-falsehood-of-fake-viewers-on-youtube/"><u>[New] Danger Lurking Online Spotting the Falsehood of Fake Viewers on YouTube</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unveiling-10plus-proven-techniques-for-selecting-the-finest-cricket-broadcasts/"><u>[Updated] In 2024, Unveiling 10+ Proven Techniques for Selecting the Finest Cricket Broadcasts</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unveiling-top-editors-perfect-entries-any-device/"><u>[Updated] Unveiling Top Editors Perfect Entries, Any Device</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-motorola-moto-g34-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Motorola Moto G34 5G Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://win-answers.techidaily.com/exploring-ntuserdat-key-functions-and-importance-within-a-windows-environment/"><u>Exploring NTUSER.DAT: Key Functions and Importance Within a Windows Environment</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-remove-apple-iphone-6s-sim-lock-by-drfone-ios/"><u>How to Remove Apple iPhone 6s SIM Lock?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-honor-magic-5-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Honor Magic 5 Without PUK Codes</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-poco-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Poco Phone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-atandt-apple-iphone-6-with-3-methods-by-drfone-ios/"><u>In 2024, How to Unlock AT&T Apple iPhone 6 with 3 Methods</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-motorola-edgeplus-2023-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Motorola Edge+ (2023) online without jailbreak</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-premier-selection-freepluspaid-iphone-cinema-apps-reviewed/"><u>In 2024, Premier Selection FREE+Paid iPhone Cinema Apps Reviewed</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/latest-updates-for-hp-officejet-pro-cuintilla-8720-windows-printing-software-and-driver-downloads/"><u>Latest Updates for HP OfficeJet Pro Cuintilla 8720 Windows Printing Software and Driver Downloads</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/no-sounds-in-apex-legends-heres-a-step-by-step-guide-to-troubleshoot-and-resolve/"><u>No Sounds in Apex Legends? Here's a Step-by-Step Guide to Troubleshoot and Resolve</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/primes-trending-topics-highest-tweets-and-watch-count-achievements/"><u>Prime’s Trending Topics Highest Tweets & Watch Count Achievements</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-vivo-s18-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Vivo S18 IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-samsung-galaxy-s23-tactical-edition-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Samsung Galaxy S23 Tactical Edition Device</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-jujutsu-kaisen-in-action-making-memorable-tiktok-videos-for-2024/"><u>[New] Jujutsu Kaisen in Action Making Memorable TikTok Videos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-guide-to-live-stream-your-google-meet-on-youtube-for-2024/"><u>[Updated] Step-By-Step Guide to Live Stream Your Google Meet on YouTube for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-flipping-the-script-in-photography-how-angles-can-make-or-break-your-insta-posts/"><u>2024 Approved Flipping the Script in Photography How Angles Can Make or Break Your Insta Posts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-seamlessly-assemble-digital-memories-with-picshot-apps/"><u>2024 Approved Seamlessly Assemble Digital Memories with Picshot Apps</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-oppo-k11-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Oppo K11 5G Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-samsung-galaxy-xcover-6-pro-tactical-edition-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Samsung Galaxy XCover 6 Pro Tactical Edition Phone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-samsung-galaxy-xcover-7-by-drfone-android/"><u>In 2024, How to Bypass FRP on Samsung Galaxy XCover 7?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-the-apple-iphone-14-plus-sim-lock-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock The Apple iPhone 14 Plus SIM Lock 4 Easy Methods</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-xiaomi-redmi-a2plus-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Xiaomi Redmi A2+ Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-apple-iphone-12-by-drfone-ios/"><u>In 2024, Top 11 Free Apps to Check IMEI on Apple iPhone 12</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-vivo-y77t-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Vivo Y77t Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-oneplus-11-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change OnePlus 11 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-vivo-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Vivo Phone Network-Ready</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-samsung-galaxy-a25-5g-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Samsung Galaxy A25 5G FRP Without Computer</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/solving-hp-printer-oxc4eb827f-fatality-problem/"><u>Solving HP Printer OXC4EB827F Fatality Problem</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/troubleshooting-windows-notepad-freeze-issues/"><u>Troubleshooting Windows Notepad Freeze Issues</u></a></li>
 </ul></div>
 
