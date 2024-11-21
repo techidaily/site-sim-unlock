@@ -1,7 +1,7 @@
 ---
 title: The Best Android Unlock Software For Xiaomi Redmi 12 5G Device Top 5 Picks to Remove Android Locks
-date: 2024-08-09T16:25:25.555Z
-updated: 2024-08-10T16:25:25.555Z
+date: 2024-11-19T01:43:29.808Z
+updated: 2024-11-20T22:42:15.528Z
 tags: 
   - unlock
   - sim unlock
@@ -18,22 +18,17 @@ thumbnail: https://thmb.techidaily.com/09fee241173a4d75afd314bc2889ac10d1158fd98
 Are you looking for the best Android unlock software in 2024? Whether your Android device is locked due to a forgotten password, pattern lock, broken hardware key, or bootloader issues – unlocking it can be quite frustrating. Fortunately, there are several great Android unlock software available that make unlocking your device much easier. Here’s a look at five of the best Android unlock software in 2024:
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Top 1: Dr.Fone - Screen Unlock (Android)
 
 Is your Android lock screen causing you trouble? Forgot your password or pattern? Don't worry, just use the [Dr.Fone - Screen Unlock (Android)](https://tools.techidaily.com/wondershare-dr-fone-unlock-android-screen/), a powerful tool that can help you remove the lock screen on your Android device. This software prepares you with simple instructions, wherein you can unlock your Android device screen within minutes, and save you from ending up with a locked phone after too many pin/passcode/pattern attempts.
 
 You can even [unlock part of Samsung and LG devices without data erasing](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/), so you can still access the data after unlocking. Most softwares need to erase all data on the phone once the Xiaomi Redmi 12 5G device is unlocked and you cannot get the data back anymore. That's terrible if you have many precious videos, photos, or other data on your device! Right?
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![arrow](https://drfone.wondershare.com/style/images/arrow_up.png)
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### [Dr.Fone - Screen Unlock (Android)](https://tools.techidaily.com/wondershare-dr-fone-unlock-android-screen/)
 
 Get Rid of Your Android Lock Screen in No Time
@@ -45,6 +40,10 @@ Get Rid of Your Android Lock Screen in No Time
 
 **4,008,672** people have downloaded it
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Let's dive in and learn how to use this handy software
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/QWpE8NykOWc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen="allowfullscreen"></iframe>
@@ -55,10 +54,6 @@ Get Rid of Your Android Lock Screen in No Time
 
 - You can also use this tool to unlock other Android phones including Huawei, Lenovo, Xiaomi, etc., the only sacrifice is that you will lose all the data after unlocking.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![Dr.Fone - Screen Unlock (Android)](https://images.wondershare.com/drfone/guide/android-screen-unlock-3.png)
 
 **Step 2. Select Device Brand and Put Device into Specific Mode**
@@ -66,6 +61,10 @@ Get Rid of Your Android Lock Screen in No Time
 - Choose the Xiaomi Redmi 12 5G device brand to unlock the screen, and your Android device will automatically enter the specified modee.
 
 ![android lock screen removal](https://images.wondershare.com/drfone/guide/screen-unlock-any-android-device-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3. Screen Unlocked Successfully**
 
@@ -86,9 +85,6 @@ This wonderful utility is ideal to unlock cell phones. You can choose between No
 - **Step 3.** Enter the cell phone model of the first box.
 - **Step 4.** Enter other details like DCT, IMEI, country, and company names in the subsequent boxes.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![nokia free unlock code calculator](https://images.wondershare.com/drfone/article/2023/05/nokiafree-2.jpg)
 
 - **Step 5.** To get the EMEI code, check the cell "\*#06#".
@@ -96,11 +92,16 @@ This wonderful utility is ideal to unlock cell phones. You can choose between No
 
 ![nokia free unlock code calculator](https://images.wondershare.com/drfone/article/2023/05/nokiafree-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 7.** The code is calculated to release your cell phone.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Top 3: Multi Unlock Software
 
 Multi Unlock Software is a versatile phone unlock software for devices like Samsung, Sidekick, Sony Ericsson, Dell, iDen, Palm, ZTE, and Huawei. Easily unlock your phone with this Android unlock software free download.
@@ -121,9 +122,6 @@ Before you begin:
 - Under the Settings tab, ensure the "main server" is chosen.
 - Ensure "Save Login Data" is enabled.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![multi unlock software](https://images.wondershare.com/drfone/article/2023/05/multi-unlock.jpg)
 
 **Step 1. Download the software and connect your phone to a PC**
@@ -149,9 +147,6 @@ To understand how to unlock your Android software with iMobie DroidKit, you need
 
 - **Step 1.** Download and install iMobie DroidKit on your computer. After connecting your device with the PC via USB, select the "Screen Unlocker" mode.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![launch imobie to unlock device](https://images.wondershare.com/drfone/article/2023/05/imobie-droidkit-1.png)
 
 - **Step 2.** The platform prepares a configuration file for your device. Once prepared, tap on "Remove Now".
@@ -163,9 +158,6 @@ To understand how to unlock your Android software with iMobie DroidKit, you need
 
 ![successful removal of lock by imobie](https://images.wondershare.com/drfone/article/2023/05/imobie-droidkit-3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Top 5: PassFab Android Unlocker
 
 Another option that may feature your need for an Android unlock software is PassFab’s Android Unlocker. This platform has made device unlocking extremely simple and easy. It can perform all major kinds of procedures to help you cater to all the issues present in the Xiaomi Redmi 12 5G device.
@@ -178,29 +170,27 @@ You need to follow the steps explained below to understand the process of unlock
 
 - **Step 2.** The platform demands confirmation before starting the process. Click ‘Start’ to initiate the process.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![confirm removal of lock ](https://images.wondershare.com/drfone/article/2023/05/passfab-android-unlock-2.jpg)
 
 - **Step 3.** The platform provides a prompt showing the completion of the task. The Android device will be successfully unlocked.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![passfab success in removing lock ](https://images.wondershare.com/drfone/article/2023/05/passfab-android-unlock-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Frequently Asked Questions about Android Unlocking: Get the Answers Here
 
 In this part, we will answer some frequently asked questions about Android unlocking to help you understand the process and make an informed decision.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Q1: What is an Android Lock?
 
 An Android lock is a security feature that allows you to protect your device from unauthorized access. There are various types of Android locks, such as pattern locks, PIN locks, and fingerprint locks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Q2: Why Would I Want to Remove an Android lock?
 
@@ -210,9 +200,6 @@ There are several reasons why you might want to remove an Android lock. For exam
 
 A Master PIN code, also known as a [Samsung Unlock Code](https://drfone.wondershare.com/unlock/samsung-unlock-codes.html), is a unique numeric code that can be used to unlock a Samsung device. This code is typically provided by the manufacturer or carrier and is used to remove any restrictions or limitations on the Xiaomi Redmi 12 5G device. It allows the user to use the Xiaomi Redmi 12 5G device with any carrier or SIM card, giving them more flexibility and freedom. It is important to note that the Master PIN code is different from the Xiaomi Redmi 12 5G device's regular PIN or password, and it should be kept confidential to prevent unauthorized access to the Xiaomi Redmi 12 5G device.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Q4: Can I Remove an Android Lock Without Losing My Data?
 
 If your device is Samsung or LG, Dr.Fone could help unlock your screen without erasing your data. Please check if your tool model is involved in the [device information list](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/).
@@ -224,8 +211,9 @@ If your device is Samsung or LG, Dr.Fone could help unlock your screen without e
 To conclude, for those looking for the best Android unlock software in 2024, our top recommendation is Dr.Fone - Screen Unlock (Android). With its exceptional features and high success rate, it outshines the competition. Whether you need to remove a PIN, pattern, or fingerprint lock, Dr.Fone offers a reliable solution. For more information and answers to frequently asked questions about Android unlocking, refer to our [comprehensive guide on unlocking Android devices](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/). Unlock your Android device with confidence using the top-rated Dr.Fone - Screen Unlock (Android).
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Unlocking Your Android Phone: Everything You Need to Know to Use Any SIM Card
 
 Getting carrier locked on the phone is one of the worst things that can happen especially when you feel there is not much you can do about it. But that’s not really true. There are few ways that could help alleviate this problem or which could come as a help in such circumstances when the Smartphone is carrier locked. This problem often requires help from the carrier or network and can be easily sorted on doing so.
@@ -250,8 +238,9 @@ _**
 • There is a certain time period which if not over yet, unlocking the phone would require termination fee.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Professional Reputable Smartphone Unlock Service
 
 If you have tried out contacting the carrier and there is no way the carrier is unlocking your phone, you can opt for professional unlock service which could be of help. But finding such a professional service is not an easy task. There are some sites and service providers which require the IMEI number of the phone to create unlock codes. IMEI number of the phone is given to the professional SIM unlock service post which, they generate a special character combination which can be used to get the cell phone out of network restrictions. So, the phone can be unlocked remotely by using the special remote unlock codes.
@@ -291,15 +280,12 @@ Compared to connecting with your network provider, choosing an unlocking softwar
 - A 100% success rate cannot be guaranteed.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 There are many different methods to SIM unlock your Android device, however, they all have some disadvantages. Doctor SIM. provides fast and amazing solution for iPhone SIM lock. And we are trying hard to launch Android version. Stay tuned!
-
-
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -307,3 +293,20 @@ There are many different methods to SIM unlock your Android device, however, the
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-transform-your-youtube-profile-incorinaste-gamers-templates/"><u>[New] 2024 Approved Transform Your YouTube Profile Incorinaste Gamers' Templates</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-leading-video-call-applications-for-conference-success-for-2024/"><u>[Updated] Leading Video Call Applications for Conference Success for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-from-sound-to-storage-logging-online-broadcasts-efficiently/"><u>2024 Approved From Sound to Storage Logging Online Broadcasts Efficiently</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-honor-magic-5-pro-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Honor Magic 5 Pro to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-do-i-sim-unlock-my-apple-iphone-12-pro-by-drfone-ios/"><u>How Do I SIM Unlock My Apple iPhone 12 Pro?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-create-a-digital-signature-online-for-word-2007-document-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Create a Digital Signature Online for Word 2007 document</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-x-to-other-iphone-12-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone X To Other iPhone 12 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-itel-p40-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Itel P40 Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-oppo-reno-11-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Oppo Reno 11 5G Without PUK Codes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-sony-xperia-10-v-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Sony Xperia 10 V Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-huawei-by-drfone-android/"><u>Three Ways to Sim Unlock Huawei</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-samsung-galaxy-a14-4g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Samsung Galaxy A14 4G to iPhone 14/15 | Dr.fone</u></a></li>
+</ul></div>
+

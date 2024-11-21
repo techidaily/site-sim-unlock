@@ -1,7 +1,7 @@
 ---
 title: Three Ways to Sim Unlock Xiaomi Redmi K70E
-date: 2024-11-04T22:39:34.422Z
-updated: 2024-11-10T20:59:13.502Z
+date: 2024-11-13T17:46:57.761Z
+updated: 2024-11-20T20:00:01.816Z
 tags: 
   - unlock
   - sim unlock
@@ -44,6 +44,10 @@ Do take note that this process may not work with your carrier. Therefore, always
 - 5\. Insert your new SIM card and tap in the IMEI number when it asks you for SIM network unlock PIN.
 
 ![sony unlock screen](https://images.wondershare.com/drfone/article/2016/08/unlock-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you have followed these steps to a tee, you should have unlocked your device. If you had to abort after Step 2, look at the other two methods below.
 
@@ -124,18 +128,15 @@ For example, in Australia, an unlocked Xiaomi Redmi K70E will cost around $499 f
 
 Now that you know the three ways of unlocking your Xiaomi Redmi K70E, all you need to do is find one that is most compatible with you. Just remember to think of everything through and carefully. Most importantly, if you have a locked device, always seek advice from your carrier to see if this is possible.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Android Unlock Code: Sim Unlock Your Xiaomi Redmi K70E Phone and Remove Locked Screen
 
 When you buy a phone, your matter of concern is whether to buy a locked phone or an unlocked Phone. Locked phones may look much safer to you, but they are very inconvenient when it comes to normal use. These phones are bound to one carrier only, which is their biggest disadvantage. At the same time, unlocked phones save you from this hassle.
 
 If you’ve bought a locked phone and facing problems, you need not worry as there are multiple ways to unlock your phone. For that, this article has provided the solution to your issue in the most intelligible way.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: Difference between Unlocking, Rooting, and Jailbreaking
 
@@ -161,18 +162,15 @@ Root access is not all fun, and games as this process will lead you to the secur
 
 ![iphone Jailbreak](https://images.wondershare.com/drfone/article/2023/09/iphone-jailbreak.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Jailbreaking a device](https://drfone.wondershare.com/guide/how-to-jailbreak-ios-on-windows.html) means removing all the restrictions on that device that its manufacturer's applied. **This process works specifically for Apple devices.** It lets you bypass the limitations and restrictions, so you can modify the software your way and make changes to the default program. It is also considered free booting, and Apple or any other company does not approve of it.
 
 In summary, unlocking is primarily about freeing a device from carrier restrictions, rooting is specific to Android devices and involves gaining administrative access, while jailbreaking is specific to iOS devices and involves bypassing Apple's restrictions for more customization. All these processes come with potential risks and may void warranties, so users should carefully consider the implications before proceeding.
 
 It is advisable to always go for the safest method, unlocking your phone. Rooting and Jailbreaking are risky security exploitations that can cause serious problems.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Is it Legally Allowed to Unlock Your Xiaomi Redmi K70E?
 
@@ -183,19 +181,6 @@ In order to legally unlock your phone, you must make sure your phone service con
 ## Part 3: Free Ways to Perform Android SIM Efficiently
 
 This part of the article will briefly explain some efficient and free-of-cost ways to unlock your SIM.
-
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 1. Unlock your SIM through GalaxSim Unlock
 
@@ -220,6 +205,10 @@ Once GalaxSim is downloaded, open the application and allow it to run on your de
 Under your phone’s status, click on “Unlock” to continue. After the process is completed, your phone will be unlocked successfully.
 
 ![unlock your phone](https://images.wondershare.com/drfone/article/2021/06/unlock-code-ways-to-sim-unlock-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2. Unlock SIM through Free Code
 
@@ -248,13 +237,6 @@ Wondershare [Dr.Fone - Screen Unlock (Android)](https://tools.techidaily.com/won
 <iframe width="560" height="315" src="https://www.youtube.com/embed/QWpE8NykOWc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen="allowfullscreen"></iframe>
 
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg)safe & secure
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Wondershare Dr.Fone is the best solution to unlock your Android device as it
 
@@ -287,6 +269,10 @@ Now, select your Device to proceed on. Dr.Fone will guide your Android device in
 Once your device model matches and your device enters the specific mode, the software will automatically start unlocking. This way, your password will be removed successfully, and you can easily unlock and access your Android device.
 
 ![initiate the unlock process](https://images.wondershare.com/drfone/guide/screen-unlock-any-android-device-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: Tip to Avoid the SIM Lock Issue
 
@@ -344,10 +330,7 @@ _**Tips:** You're going on a trip to Frankfort, but forgot to unlock your iPhone
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg)safe & secure
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. IMEI Analyzer
@@ -374,13 +357,6 @@ Download Link: [https://play.google.com/store/apps/details?id=org.vndnguyen.imei
 - Some users have reported that the app crashes frequently.
 - Limited features beyond IMEI analysis.
 - Some users have reported inaccuracies in the information provided by the app.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. IMEI Generator & IMEI Changer
 
@@ -472,6 +448,10 @@ Download Link: [https://m.apkpure.com/sim-card-information-and-imei/com.simcard.
 
 ![free apps on IMEI check](https://images.wondershare.com/drfone/article/2023/05/sim-card-info-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Pros:**
 
 - Simple user interface.
@@ -525,6 +505,10 @@ Download Link: [https://itunes.apple.com/us/app/mobicheck/id1057556237](https://
 1. _This app works !! Even better that is free! -- from App Store_
 2. _I’m stuck in a loop where it keeps telling me to confirm my account with an email sent to me, then I try to log in after confirming and it tells me my account has not been fully set up. Kept going back and forth with the same issue so I gave up and deleted the app. Total garbage, will update when/if issue fixed. -- from App Store_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. iMei Blacklist Checker
 
 iMei Blacklist Checker is another app that will allow you to get your device details just by entering the IMEI number. This app is available for the iPhone and iPad. It provides a wide range of information about your device and is very easy to use. Moreover, if you want to buy a second-hand iPhone, you can use this tool to check if the phone has been reported as lost or stolen before making the final purchase decision.
@@ -539,19 +523,6 @@ iMei Blacklist Checker is another app that will allow you to get your device det
 
 ![free apps on IMEI check](https://images.wondershare.com/drfone/article/2016/06/14670048332997.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Download Link: [http://www.imei.info/](http://www.imei.info/)
 
 ### 4\. iPhoneOX
@@ -561,6 +532,10 @@ Download Link: [http://www.imei.info/](http://www.imei.info/)
 This site [iPhoneOX](http://www.iphoneox.com/) offers a lot of services that include checking IMEI for free as well as unlocking services that are offered at a fee. It is a great and easy-to-use solution that will provide you with additional information about your device and even offer help whenever you get stuck.
 
 ![free apps on IMEI check](https://images.wondershare.com/drfone/article/2023/05/iphoneox-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Link: [http://www.iphoneox.com/](http://www.iphoneox.com/)
 
@@ -581,16 +556,14 @@ Remove Android lock screen in 5 minutes
 - Pattern, PIN, password, fingerprints & face screen lock can all be unlocked.
 - Bypass Android FRP lock without a PIN or Google account.![New icon](https://images.wondershare.com/drfone/others/new_23.png)
 - Unlock mainstream Android brands like Samsung, Huawei, LG, Xiaomi, etc.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - No tech knowledge required, Simple, click-through, process.
 
 **3,981,454** people have downloaded it
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -614,20 +587,18 @@ _**Tips:** If you have ever had your iPhone locked, you know how frustrating it 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-thriving-in-thumbnails-creating-impressive-youtube-on-macos/"><u>[New] In 2024, Thriving in Thumbnails Creating Impressive Youtube on macOS</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-decoding-androids-editing-elite-is-picku-the-ultimate-choice/"><u>[Updated] In 2024, Decoding Android's Editing Elite Is PickU the Ultimate Choice?</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-expert-video-downloader-kit-ideal-for-firefox-browser-users/"><u>[Updated] In 2024, Expert Video Downloader Kit Ideal for FireFox Browser Users</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-is-a-brief-subscribe-beneficial-for-content-consumption/"><u>[Updated] Is a Brief Subscribe Beneficial for Content Consumption?</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-vivo-x100-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Vivo X100 Pro | Dr.fone</u></a></li>
-<li><a href="https://network-issues.techidaily.com/1719974529267-achieve-superior-graphical-performance-update-intel-hd-3000-for-windows-10-now/"><u>Achieve Superior Graphical Performance: Update Intel HD 3000 for Windows 10 Now</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-shoot-with-clarity-capture-immersive-experiences-9-essentials/"><u>In 2024, Shoot with Clarity, Capture Immersive Experiences (9 Essentials)</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-3-sites-to-find-free-realme-unlock-codes-to-unlock-your-realme-phone-by-drfone-android/"><u>In 2024, Top 3 Sites to Find Free Realme Unlock Codes to Unlock Your Realme Phone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-realme-c51-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Realme C51 Phone? Unlock It Now</u></a></li>
-<li><a href="https://games-able.techidaily.com/streamlining-social-media-interactions-twitch-banunban-guide/"><u>Streamlining Social Media Interactions: Twitch Ban/Unban Guide</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-poco-f5-pro-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Poco F5 Pro 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-zte-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 ZTE Android SIM Unlock APK</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-xiaomi-redmi-13c-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Xiaomi Redmi 13C 5G IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://driver-install.techidaily.com/unifying-gamesystem-xbox-and-windows-10/"><u>Unifying Gamesystem: XBox & Windows 10</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-nubia-red-magic-9-pro-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Nubia Red Magic 9 Pro Device</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-future-awaits-equipping-yourself-for-metaverse-life-top-7/"><u>[New] 2024 Approved The Future Awaits Equipping Yourself for Metaverse Life (Top 7)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-effortless-methods-for-iphone-visual-content-transfer/"><u>[New] Effortless Methods for iPhone Visual Content Transfer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bloodborne-a-deep-dive-into-its-gothic-nightmare-world/"><u>Bloodborne: A Deep Dive Into Its Gothic Nightmare World</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-take-the-superior-android-power-of-the-samsung-galaxy-tab-s7plus/"><u>Expert Take: The Superior Android Power of the Samsung Galaxy Tab S7+</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-honor-x9a-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Honor X9a Without PUK Codes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-the-iphone-8-sim-lock-4-easy-methods-by-drfone-ios/"><u>How To Unlock The iPhone 8 SIM Lock 4 Easy Methods</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-samsung-galaxy-f04-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Samsung Galaxy F04 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-iphone-8-and-android-phones-by-drfone-ios/"><u>In 2024, Top IMEI Unlokers for iPhone 8 and Android Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-oppo-a2-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Oppo A2 Phone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-samsung-galaxy-f34-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Samsung Galaxy F34 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/steps-to-correct-continuous-halt-in-deathloop-performance-for-playstation-5-and-pc-users/"><u>Steps to Correct Continuous Halt in Deathloop Performance for PlayStation 5 and PC Users</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-nokia-c12-pro-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Nokia C12 Pro Phone Hassle-Free</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-silent-gearbox-g435-wireless-headset-step-by-step-guide/"><u>Troubleshooting Silent Gearbox G435 Wireless Headset - Step-by-Step Guide</u></a></li>
 </ul></div>
 
