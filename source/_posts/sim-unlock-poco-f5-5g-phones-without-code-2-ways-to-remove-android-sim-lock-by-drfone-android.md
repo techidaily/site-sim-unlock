@@ -1,7 +1,7 @@
 ---
 title: Sim Unlock Poco F5 5G Phones without Code 2 Ways to Remove Android Sim Lock
-date: 2024-11-16T16:22:17.645Z
-updated: 2024-11-20T16:06:13.868Z
+date: 2024-11-26T04:34:45.627Z
+updated: 2024-11-28T20:35:43.871Z
 tags: 
   - unlock
   - sim unlock
@@ -30,10 +30,6 @@ Now we are going to show you howto use GalaxSim Unlock to unlock an Android phon
 What we have to do first is to visit the Google Play Store to download Galaxsim and install it on the Android phone we want to unlock.
 
 ![galaxsim unlock-Download and Install GalaxSim](https://images.wondershare.com/drfone/article/2016/09/14737631349485.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2. Launch Galaxsim Unlock**
 
@@ -70,10 +66,6 @@ You will get your phone unlocked now in a moment as shown in the screenshot belo
 - May not support some phones
 - All features are not free to use
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Unlock SIM using Galaxy S Unlock
 
 GalaxyS Unlock is a smart SIM unlocking application developed for Android devices. Like Galaxsim, it also doesn’t use any unlocking code yet, can easily unlock your Android phone. It helps you unlock any Galaxy S, Galaxy S II, Galaxy Tab and Note phone.
@@ -85,10 +77,6 @@ To use this application,you can follow these simple steps.
 At first, you have to download Galaxy S Unlock from the Google Play Store using this download link.
 
 ![galaxy s unlock-Download and Install](https://images.wondershare.com/drfone/article/2016/09/14737666771201.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2. Open Galaxy S Unlock**
 
@@ -102,6 +90,10 @@ This is the last step and your phone will be unlocked. It will also ask you to r
 
 ![galaxy s unlock-Phone Unlock](https://images.wondershare.com/drfone/article/2016/09/14737667693126.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Pros**
 
 - User-friendly and freely available
@@ -114,6 +106,10 @@ This is the last step and your phone will be unlocked. It will also ask you to r
 ## Conclusion
 
 Reading this article lets you know the three best ways to sim unlock your Android without code. You can adopt any one of the mentioned methods to remove the restriction imposed on your phone. The steps as you read are simple and easy to follow. The most important fact about these methods is that you don’t needany unlocking code.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### [Dr.Fone - Screen Unlock (Android)](https://tools.techidaily.com/wondershare-dr-fone-unlock-android-screen/)
 
@@ -167,6 +163,10 @@ Once you have selected the Poco F5 5G device, enter the IMEI code, your email ad
 
 ![SIM unlock service](https://images.wondershare.com/drfone/article/2016/06/14670574099244.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. iPhone IMEI
 
 Website URL: [https://iphoneimei.net/](https://appleiphoneunlock.uk/network/Special%20Services/Activation%20Lock?aff=wondershare)
@@ -188,14 +188,6 @@ To use it, click on "Unlock your Phone" in the main menu and select your device 
 In the next window, select your country and network provider and enter the phone's IMEI number and other information. Choose a payment method and then continue to check out. You will receive the codes at the email address you provided.
 
 ![SIM unlock service](https://images.wondershare.com/drfone/article/2016/06/14670574371837.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Mobile Unlocked
 
@@ -221,6 +213,10 @@ You will be directed to a payment page where you can make your payment.  The co
 
 ![SIM unlock service](https://images.wondershare.com/drfone/article/2016/06/14670574684690.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tutorial to Change Poco F5 5G IMEI without Root: A Comprehensive Guide
 
 As an Android device user, you may have come across a situation where you need to change your device IMEI number. The International Mobile Equipment Identity (IMEI) is a unique 15-digit number assigned to every mobile device, such as smartphones and tablets. This number serves as an identifier, helping to distinguish your device from millions of others. One of the main reasons people want to change their Android IMEI number is to unblock a device that has been blacklisted by their network provider. Other reasons include accessing certain network features and services or maintaining anonymity.
@@ -232,6 +228,10 @@ Changing your Android IMEI without root access may seem like a daunting task, bu
 The International Mobile Equipment Identity (IMEI) is a unique identifier for every mobile device. It allows network providers and manufacturers to track and block devices if they are reported as lost or stolen. Changing your device's IMEI can help to unblock a blacklisted device, access certain network features and services, or maintain anonymity. However, be aware that altering your IMEI number is illegal in some countries and may void your warranty.
 
 ![imei number](https://images.wondershare.com/drfone/article/2023/05/imei-number.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### There are several uses of the IMEI number
 
@@ -257,6 +257,10 @@ Like many other things out there, changing Android IMEI has both advantages and 
 2. The IMEI number is hardcoded into your device. Therefore, changing your device’s IMEI number may void your device warranty and cause other issues such as network problems and software instability.
 3. Legally, you have forfeited your ownership of your mobile device. When you purchase your device, the seller will jot down the original IMEI number on your receipt. So if you changed your IMEI and lost it, you may not be able to claim it. This is because authorities cannot see if it is truly yours. After all, the IMEI numbers no longer correlate with each other.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Find the IMEI on an Android? (5 Ways)
 
 It is essential to know your Android device's IMEI for various reasons, such as registering the Poco F5 5G device, reporting it as stolen or lost, checking warranty status, or verifying its authenticity. In this part, we will walk you through the various methods on how to find the IMEI on your Android device.
@@ -268,17 +272,13 @@ One of the easiest ways to find the IMEI number on your Android device is throug
 ![find imei number through settiings](https://images.wondershare.com/drfone/article/2023/05/locate-imei-through-the-settings-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 - **Step 1:** Open the "Settings" app on your Android device.
 - **Step 2:** Scroll down and tap on "About phone" or "About device".
 - **Step 3:** Tap on "Status" or "IMEI information".
 - **Step 4:** You will see your IMEI number displayed on the screen. Note this down or take a screenshot for reference.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 2: Use the Dialer App
 
@@ -294,6 +294,10 @@ Another quick method to find the IMEI number is by using the dialer app on your 
 
 If you still have the original packaging or receipt for your Android device, you may find the IMEI number printed on it. Look for a label or sticker on the box that contains the Poco F5 5G device's details, including the IMEI number.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 4: Find IMEI on a Removable Battery (for older devices)
 
 For older Android devices with removable batteries, you can find the IMEI number printed on a sticker underneath the battery. To locate it, follow these steps:
@@ -304,10 +308,6 @@ For older Android devices with removable batteries, you can find the IMEI number
 - **Step 2:** Remove the back cover and take out the battery.
 - **Step 3:** Look for a sticker or printed text with the IMEI number.
 - **Step 4:** Note it down or take a photo for reference.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 5: Check the SIM Card Tray
 
@@ -346,6 +346,10 @@ Before you begin the process of changing your Android IMEI without root, there a
 - **Back up your Android phone:** Before making any changes to your device, it is always recommended to backup your data. This will help you to avoid any data loss in case anything goes wrong during the process. You can [back up your device data](https://tools.techidaily.com/wondershare/drfone/android-backup-and-restore/) using Google Backup or a local backup software like [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/android-backup-and-restore/).
 
 Wondershare Dr.Fone is a tool that helps you keep your important data safe. It can back up all the important information on your Android phone or tablet, like photos, music, videos, contacts, and more and is compatible with over 8000 Android devices. The backup process is easy and only takes a few clicks. You can also restore your backup to any device you want, and choose which data you want to restore. This is a great way to make sure you never lose your important information!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 6: How to Change Android IMEI Number without Root?
 
@@ -391,6 +395,10 @@ Follow these steps to change your IMEI using MobileUncle Tools:
 
 ![mtk change imei android](https://images.wondershare.com/drfone/article/2023/05/mtk-engineering-mode-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [MTK Engineering Mode](https://play.google.com/store/apps/details?id=com.themonsterit.EngineerStarter&hl=en&gl=US) is another app designed for MediaTek devices that allows users to access hidden settings and options. It was specifically made for Taiwanese device manufacturers such as Tecno, Infinix, Elephone, Oppo, Chuwi, etc. While not fully recommended, reports have been that it works with Android devices made by non-Taiwanese manufacturers. Its clean interface makes navigating the app seamlessly.
 
 Follow these steps to change your IMEI using MTK Engineering Mode:
@@ -406,10 +414,6 @@ Follow these steps to change your IMEI using MTK Engineering Mode:
 - **Step 7:** Enter the following command in the input field: AT+EGMR=1,7,"Your\_New\_IMEI\_Number".
 - **Step 8:** Tap on the "Send AT Command" button. A confirmation message should appear.
 - **Step 9:** Restart your device, and the new IMEI number should be active.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 7: How to Fix Software Errors Without Changing IMEI Number?
 
@@ -432,10 +436,6 @@ Here is how to repair all sorts of Android software issues using Dr.Fone. Follow
 Launch the Wondershare Dr.Fone software on your computer and navigate to the "Toolbox" section in the left panel. Connect the Android device requiring repair, then choose "System Repair" from the provided options. Proceed to the next screen, where you'll select "Android" to start the repair process.
 
 ![select device type for repair](https://images.wondershare.com/drfone/guide/system-repair-2.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 2: Enter Your Poco F5 5G Device's Details
 
@@ -475,18 +475,16 @@ You will also need the IMEI number if you want to unlock your phone and use it o
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-live-screen-archive-aggregators-for-2024/"><u>[New] Live Screen Archive Aggregators for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-the-editors-toolkit-elevating-your-youtube-videos-via-windows-pc/"><u>[Updated] The Editor's Toolkit Elevating Your YouTube Videos via Windows PC</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-vivo-t2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/accelerate-your-swedish-speaking-skills-now/"><u>Accelerate Your Swedish Speaking Skills Now</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/all-about-apple-iphone-11-pro-unlock-chip-you-need-to-know-by-drfone-ios/"><u>All About Apple iPhone 11 Pro Unlock Chip You Need to Know</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-driets-and-software-complete-guide-for-epson-scanners/"><u>Download Driets & Software: Complete Guide for Epson Scanners</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/eliminating-hybrid-errors-top-5-approaches-for-hypervisorbsod/"><u>Eliminating Hybrid Errors: Top 5 Approaches for HYPERVISOR_BSOD</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-11-online-here-are-6-easy-ways-by-drfone-ios/"><u>How to Unlock iPhone 11 Online? Here are 6 Easy Ways</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-verizon-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, How to Unlock Verizon iPhone 14 Pro Max</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-streamlined-techniques-for-capturing-stories-on-instagram/"><u>In 2024, Streamlined Techniques for Capturing Stories on Instagram</u></a></li>
-<li><a href="https://review-topics.techidaily.com/oppo-reno-10-proplus-5g-video-recovery-recover-deleted-videos-from-oppo-reno-10-proplus-5g-by-fonelab-android-recover-video/"><u>Oppo Reno 10 Pro+ 5G Video Recovery - Recover Deleted Videos from Oppo Reno 10 Pro+ 5G</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-s17t-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo S17t Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-to-using-chatgpt-for-building-unique-characters-learn-the-best-prompts/"><u>The Ultimate Guide to Using ChatGPT for Building Unique Characters: Learn the Best Prompts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-freeze-time-on-mi-11-with-impeccable-screen-recording-features/"><u>[Updated] In 2024, Freeze Time on Mi 11 with Impeccable Screen Recording Features</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-next-level-video-top-webcam-filters-for-flawless-broadcasts/"><u>[Updated] Next Level Video Top Webcam Filters for Flawless Broadcasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-infusing-musical-streams-of-youtube-in-videos/"><u>2024 Approved Infusing Musical Streams of YouTube in Videos</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-vivo-s17e-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Vivo S17e Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/elite-list-of-online-stores-for-tones-on-snapchat/"><u>Elite List of Online Stores for Tones on Snapchat</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-the-frozen-hey-siri-17-proven-steps-to-reactivate-iphone-voice-command-feature/"><u>Fixing the Frozen 'Hey Siri': 17 Proven Steps to Reactivate iPhone Voice Command Feature</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-oneplus-ace-2v-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your OnePlus Ace 2V Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-vivo-t2-pro-5g-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Vivo T2 Pro 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-wallet-friendly-microphones-for-social-media-stars/"><u>In 2024, Wallet-Friendly Microphones for Social Media Stars</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-vivo-y36i-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Vivo Y36i IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://driver-error.techidaily.com/win10-troubleshooting-a-complete-look-at-asus-acpi/"><u>Win10 Troubleshooting: A Complete Look at Asus ACPI</u></a></li>
 </ul></div>
 
