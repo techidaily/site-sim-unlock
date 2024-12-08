@@ -1,7 +1,7 @@
 ---
 title: Three Ways to Sim Unlock Itel P40
-date: 2024-11-17T17:29:15.647Z
-updated: 2024-11-20T17:33:13.003Z
+date: 2024-12-07T00:31:06.829Z
+updated: 2024-12-07T22:24:38.038Z
 tags: 
   - unlock
   - sim unlock
@@ -29,6 +29,10 @@ Do take note that this process may not work with your carrier. Therefore, always
 
 ![sony xperia unlock code](https://images.wondershare.com/drfone/article/2016/08/14707989592943.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - 2\. Tap **Service info** then **Sim lock**.
 
 ![unlock with sony xperia unlock code](https://images.wondershare.com/drfone/article/2016/08/14707989592897.jpg)
@@ -37,13 +41,25 @@ Do take note that this process may not work with your carrier. Therefore, always
 
 ![unlock code sony xperia](https://images.wondershare.com/drfone/article/2016/08/14707989597664.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - 4\. Find the **IMEI number** by dialing **\*#06#**. Jot it down as this will be your code.
 
 ![sony unlock code](https://images.wondershare.com/drfone/article/2016/08/14707998453087.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - 5\. Insert your new SIM card and tap in the IMEI number when it asks you for SIM network unlock PIN.
 
 ![sony unlock screen](https://images.wondershare.com/drfone/article/2016/08/unlock-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you have followed these steps to a tee, you should have unlocked your device. If you had to abort after Step 2, look at the other two methods below.
 
@@ -56,6 +72,10 @@ To safely and successfully sim unlock your Itel P40, it is important to find a t
 Step 1. Visit Doctor - SIM Unlock Service official website, click on the Select Your Itel P40 button, and then select Itel among all the phone brands.
 
 Step 2. On the new window, fill in your phone IMEI number, model, your contact email, and other required information. Once your order is processed, the system will then send you the unlock code and instructions. You can follow the instruction to unlock your phone easily.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Itel P40 Unlock Carrier
 
@@ -80,6 +100,10 @@ One that we can attest to is  **[MyMobileUnlocking.com](http://mymobileunlockin
 
 ![unlock sony xperia](https://images.wondershare.com/drfone/article/2016/08/14708923474346.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Select your device's **Phone Brand** (Itel Ericsson) and click the **Confirm brand** button.
 
 ![unlock sony phone](https://images.wondershare.com/drfone/article/2016/08/14708923471100.jpg)
@@ -88,13 +112,13 @@ One that we can attest to is  **[MyMobileUnlocking.com](http://mymobileunlockin
 
 ![network unlock sony xperia](https://images.wondershare.com/drfone/article/2016/08/14708923475791.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - Click the **Buy now** button and complete the order form.
 
 ![sim unlock sony xperia](https://images.wondershare.com/drfone/article/2016/08/14708923461372.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Once you are finished, click the **Place order** button.
 
@@ -119,7 +143,7 @@ As indicated in the introduction, unlocked phone users can freely choose the pla
 You can also benefit from an unlocked Itel P40 if you are the kind of person who likes to take advantage of current offers provided by your local carriers. Prepaid plans are always changing in terms of offering so having the flexibility of changing carriers and prepaid plans can help you save money in the long run.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: The downside of an unlocked Itel P40
@@ -132,17 +156,9 @@ For example, in Australia, an unlocked Itel P40 will cost around $499 from any I
 
 Now that you know the three ways of unlocking your Itel P40, all you need to do is find one that is most compatible with you. Just remember to think of everything through and carefully. Most importantly, if you have a locked device, always seek advice from your carrier to see if this is possible.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Easily Unlock Your Itel P40 Device SIM
 
 Is your Android phone SIM locked? Having an unlocked device can have its benefits but most of the time most people don't even know whether their device is SIM locked or not. In this article we are going to address this issue. We are going to begin by helping you find out whether your phone is locked or not and if it is, how you can [sim unlock](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/) the Itel P40 device and enjoy the benefits of an unlocked phone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: How to Know if your Android is SIM Locked
 
@@ -172,10 +188,6 @@ To begin with, you need to confirm your IMEI number. Dial \*#06# on your device 
 
 ![How to Unlock your Android Phone](https://images.wondershare.com/drfone/article/2016/06/14670084741192.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The next step is to find a reputable service that will unlock your Android device for you. This is action you should take only if you are absolutely desperate and your carrier can't unlock your device for you. This is because many of these sites are unregulated and many of them are not reliable.
 
 You should also know that many of them will charge a certain amount for your service. You can try <https://www.safeunlockcode.com/> which is one of the more reputable ones we have found.
@@ -183,10 +195,6 @@ You should also know that many of them will charge a certain amount for your ser
 ![android SIM unlock-safeunlockcode](https://images.wondershare.com/drfone/article/2016/06/14670084936436.jpg)
 
 You will need to enter the IMEI number as part of the information you need to provide before they can unlock your device.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Troubleshooting Android SIM Unlock
 
@@ -209,6 +217,10 @@ There are some LG models that cannot be unlocked. These models include LG U300, 
 In today's world, smartphones have become an essential part of our lives. They offer a lot of convenience, but sometimes they can be a bit of a hassle. One of the biggest headaches that smartphone users face is carrier locking. This is when your phone is locked to a specific carrier, and you are unable to use it with any other carrier's SIM card.
 
 If you've tried Googling for solutions, you'll realize it may take a long time to find a reliable solution. In effect, what you're looking for is an Android [SIM unlock](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/) code generator to provide you with a free unlock code. Some free solutions may have hidden costs, so you must be careful in choosing the right Android [sim network to unlock pin software](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/). Here are seven free Android unlock code generators to consider.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1. What is Android SIM Unlock Code Generator?
 
@@ -275,29 +287,17 @@ All that is needed is the IMEI number from Your Itel P40 to generate an unlock c
 
 The NokiaFree Android SIM unlock code generator is getting better all the time. You now have access to a tool that is easy to use, and quickly unlocks restrictions on a wide range of mobiles, and anywhere in the world. An added bonus is it comes to you totally free of cost. The download takes very little time, and this Android unlock code generator does not interfere with other functions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Tool 2: WorldUnlock Codes Calculator
 
 As the name suggests, the [WorldUnlock Codes Calculator](https://www.allmobitools.com/worldunlock-codes-calculator-latest/) can unlock your phone in any location with just a few clicks. It's easy to find a reliable code generator, but you'd have to pay for receiving a code in variable amounts. In other words, there are no fixed charges to locate your phone unlock code from a dealer. However, this software is totally free and requires only basic details to provide the unlock code.
 
 ![worldunlock](https://images.wondershare.com/drfone/article/2023/05/worldunlock-codes-calculator.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### How It Works
 
 Just locate the IMEI number by typing in \*#06# into your phone. Enter the code into the software along with basic details like country of purchase and service provider. That's it.
 
 ![how worldunlock codes calculator works](https://images.wondershare.com/drfone/article/2023/05/worldunlock-codes-calculator-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Pros**
 
@@ -343,6 +343,10 @@ At the time of this review, the site was mainly providing Android SIM unlock cod
 
 UnlockMe works really well with users in the United Kingdom and its listed countries. It is expanding quite rapidly, so keeping in touch with this site makes sense. It does provide alternate solutions to finding unlocking codes at present, making it a worthwhile site to check out. If you are unable to find the unlock code this time, you're likely to find a solution the next time you visit this site.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tool 4: UnlockItFree - Powerful Worldwide SIM Unlock Code Provider
 
 With many users asking for unlock codes, [UnlockItFree](http://www.unlockitfree.com/index.php) has developed from a free domain to a powerful worldwide service provider with better features. Nearly 90,000 phones have been unlocked with codes provided by this website. This simple Android unlock code generator packs a punch with accurate and advanced technologies embedded into its unlocking process.
@@ -354,10 +358,6 @@ With many users asking for unlock codes, [UnlockItFree](http://www.unlockitfree.
 A simple process is used to uncover free unlocking for even the Nokia DCT4 and DCT3 phones via remote code. Other phones listed on the website also require users to follow easy steps to unlock SIM codes.
 
 ![how unlockitfree works](https://images.wondershare.com/drfone/article/2016/09/14733462959936.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Pros**
 
@@ -388,18 +388,20 @@ Unlockitfree has grown into a powerful site over a period of time. By offering s
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-crafting-the-perfect-first-touch-redefining-unboxing/"><u>[New] 2024 Approved Crafting the Perfect First Touch Redefining Unboxing</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-device-guide-for-google-meet-access/"><u>[New] 2024 Approved Device Guide for Google Meet Access</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/levating-your-channel-maximizing-adsense-on-youtube/"><u>[New] Elevating Your Channel Maximizing AdSense on YouTube</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-capturing-lessons-with-ease-top-screen-recorders/"><u>[Updated] 2024 Approved Capturing Lessons with Ease Top Screen Recorders</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-unveiling-the-secrets-to-successful-zoom-calls-with-android/"><u>2024 Approved Unveiling the Secrets to Successful Zoom Calls with Android</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/bumper-buddies-bonanza-for-youths-for-2024/"><u>Bumper Buddies Bonanza for Youths for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/connect-network-and-be-friendly-top-5-apps-for-new-acquaintances/"><u>Connect, Network, and Be Friendly: Top 5 Apps for New Acquaintances</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-infinix-note-30-5g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Infinix Note 30 5G Device SIM</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-8-plus-3-ways-to-unlock-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 8 Plus 3 Ways To Unlock</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-vivo-v30-lite-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Vivo V30 Lite 5G online without jailbreak</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-motorola-edge-40-neo-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Motorola Edge 40 Neo Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-oneplus-ace-2v-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on OnePlus Ace 2V Phones</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-3-sites-to-find-free-huawei-unlock-codes-to-unlock-your-huawei-phone-by-drfone-android/"><u>In 2024, Top 3 Sites to Find Free Huawei Unlock Codes to Unlock Your Huawei Phone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-flip-the-script-instagrams-video-trick/"><u>[New] Flip the Script Instagram's Video Trick</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-guide-overlaying-photos-digitally/"><u>[New] The Ultimate Guide Overlaying Photos Digitally</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-experience-the-future-of-mobile-gaming-iphone-vr-leaderboard/"><u>[Updated] Experience the Future of Mobile Gaming IPhone VR Leaderboard</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-how-to-listen-to-podcasts-on-your-iphone/"><u>[Updated] How to Listen to Podcasts on Your iPhone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-21-vegas-pro-insights-an-expert-breakdown/"><u>[Updated] In 2024, '21 Vegas Pro Insights – An Expert Breakdown</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-selection-of-6-pioneering-instagram-reel-apps-for-2024/"><u>[Updated] The Ultimate Selection of 6 Pioneering Instagram Reel Apps for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/from-script-to-screen-animating-stories-using-wmm/"><u>From Script to Screen Animating Stories Using WMM</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/get-your-premium-copy-of-macx-pro-the-ultimate-video-transcoding-solution/"><u>Get Your Premium Copy of MacX Pro: The Ultimate Video Transcoding Solution</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>How to Use Life360 on Windows PC For Apple iPhone 6s? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-tecno-camon-30-pro-5g-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Tecno Camon 30 Pro 5G Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-tecno-spark-10-5g-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Tecno Spark 10 5G Phone Network-Ready</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-honor-magic-6-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Honor Magic 6 Phone? Unlock It Now</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-xiaomi-13t-pro-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Xiaomi 13T Pro Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-xiaomi-redmi-12-5g-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Xiaomi Redmi 12 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-honor-80-pro-straight-screen-edition-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Honor 80 Pro Straight Screen Edition Phones</u></a></li>
 </ul></div>
 

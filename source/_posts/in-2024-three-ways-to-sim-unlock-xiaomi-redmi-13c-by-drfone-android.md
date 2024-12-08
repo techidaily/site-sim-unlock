@@ -1,7 +1,7 @@
 ---
 title: In 2024, Three Ways to Sim Unlock Xiaomi Redmi 13C
-date: 2024-11-04T07:29:58.410Z
-updated: 2024-11-11T09:10:10.999Z
+date: 2024-11-30T20:59:55.441Z
+updated: 2024-12-07T18:32:51.097Z
 tags: 
   - unlock
   - sim unlock
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/36cb4ddf3fc78c71836e11f4a803426f35040ec4e
 You probably purchased your Xiaomi Redmi 13C for a significant discount but are now stuck with the same network for a couple of years. You loved the Xiaomi Redmi 13C device but your network provider does not have any plans that exactly suit your needs. To release your device from your current network's clutches, you will need to unlock your phone.
 
 There are three ways you can do it and this post will go through each method so that you can find one that you are most comfortable with. Do note that if your contract has ended with your network provider, this "How to unlock Xiaomi Redmi 13C" post can be skipped as you can just ask them to unlock your phone or purchase a [sim network unlock pin](https://drfone.wondershare.com/unlock/unlock-samsung-sim-network-unlock-pin.html) for a minimal price.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Xiaomi Redmi 13C Unlock Code
 
@@ -45,6 +49,10 @@ Do take note that this process may not work with your carrier. Therefore, always
 
 ![sony unlock screen](https://images.wondershare.com/drfone/article/2016/08/unlock-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you have followed these steps to a tee, you should have unlocked your device. If you had to abort after Step 2, look at the other two methods below.
 
 ## Part 2: The Best Xiaomi Redmi 13C SIM Unlock Code Generator
@@ -57,6 +65,10 @@ Step 1. Visit Doctor - SIM Unlock Service official website, click on the Select 
 
 Step 2. On the new window, fill in your phone IMEI number, model, your contact email, and other required information. Once your order is processed, the system will then send you the unlock code and instructions. You can follow the instruction to unlock your phone easily.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Xiaomi Redmi 13C Unlock Carrier
 
 If your Xiaomi Redmi 13C is hard locked, this is your best bet in getting your device unlocked. Actually, it is the safest method among all three:
@@ -67,13 +79,6 @@ If your Xiaomi Redmi 13C is hard locked, this is your best bet in getting your d
 4. Once you have gotten the code, insert the new SIM card (from your new carrier). You will receive a prompt to enter your code. Make sure that you key in the right code---entering the wrong code will cause your phone to be locked (possibly forever).
 
 ![sony unlock screen](https://images.wondershare.com/drfone/article/2016/08/unlock-screen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Xiaomi Redmi 13C Unlock App/Software
 
@@ -113,6 +118,10 @@ One that we can attest to is  **[MyMobileUnlocking.com](http://mymobileunlockin
 
 ![sim network unlock pin sony xperia](https://images.wondershare.com/drfone/article/2016/08/unlock-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: The benefits of an unlocked Xiaomi Redmi 13C
 
 If you now know how to unlock Xiaomi Redmi 13C but still do not know its advantages, we are here to help.
@@ -120,6 +129,10 @@ If you now know how to unlock Xiaomi Redmi 13C but still do not know its advanta
 As indicated in the introduction, unlocked phone users can freely choose the plans they subscribed to---on any carriers, in any country. Therefore, if you travel frequently around the world, having an unlocked Xiaomi Redmi 13C would be beneficial. Using a local SIM card is much cheaper than paying for exorbitant roaming charges.
 
 You can also benefit from an unlocked Xiaomi Redmi 13C if you are the kind of person who likes to take advantage of current offers provided by your local carriers. Prepaid plans are always changing in terms of offering so having the flexibility of changing carriers and prepaid plans can help you save money in the long run.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 6: The downside of an unlocked Xiaomi Redmi 13C
 
@@ -130,13 +143,6 @@ For example, in Australia, an unlocked Xiaomi Redmi 13C will cost around $499 fr
 ## Conclusion
 
 Now that you know the three ways of unlocking your Xiaomi Redmi 13C, all you need to do is find one that is most compatible with you. Just remember to think of everything through and carefully. Most importantly, if you have a locked device, always seek advice from your carrier to see if this is possible.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Unlocking Your Android Phone: Everything You Need to Know to Use Any SIM Card
 
@@ -160,19 +166,6 @@ _**
 • Sometimes, even the network providers or carrier refuse to unlock Smartphone
 
 • There is a certain time period which if not over yet, unlocking the phone would require termination fee.
-
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Professional Reputable Smartphone Unlock Service
 
@@ -241,10 +234,7 @@ When your phone prompts you to enter a SIM Network Unlock PIN, it means that you
 ![sim locked](https://images.wondershare.com/drfone/article/2022/11/fix-network-locked-simcard-inserted-01.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Why Does Your Xiaomi Redmi 13C Say Invalid SIM Card – Network Locked SIM Card Inserted?
@@ -277,13 +267,6 @@ As a result, it may be possible that the user may face contradictions in the agr
 
 ![unlock sim card](https://images.wondershare.com/drfone/article/2022/11/fix-network-locked-simcard-inserted-03.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Unlock Network Locked SIM Card Inserted?
 
 Unlocking a network-locked SIM card may seem like a complex task. However, it can be a straightforward process if you follow the right steps. In this section, we will guide you through the process of unlocking your network-locked SIM card. We will discuss 3 different ways you can unlock a **network-locked SIM card inserted**:
@@ -308,6 +291,10 @@ One such service is [Canada Unlocking](https://canadaunlocking.com/), which offe
 
 ![add the imei number](https://images.wondershare.com/drfone/article/2023/09/network-locked-sim-card-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 3. Repair Your Xiaomi Redmi 13C Firmware If Your Unlocked Phone Suddenly Network Locked
 
 Coming across "**Network Locked SIM Card Inserted**" doesn't necessarily mean that your SIM card is network locked. It can also happen due to a system bug or glitch. This can be the case if you suddenly face this issue after recently updating your device. In such scenarios, you need a reliable Android system repair tool like Wondershare Dr.Fone.
@@ -327,10 +314,7 @@ After selecting "System Repair," you will proceed to a new window. Here, choose 
 ![add android smartphone details](https://images.wondershare.com/drfone/guide/android-system-repair-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Solve the Network Locked SIM Card Inserted Issue**
@@ -340,6 +324,14 @@ Now, you need to put your Android device into Download Mode. You can follow the 
 Confirm your choice by inserting “000000” in the pop-up dialogue box and tap “Confirm.” It will start the Android repair process to fix all system issues.
 
 ![press the fix now button](https://images.wondershare.com/drfone/guide/android-system-repair-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Bonus Tip. How to Unlock Network Locked Sim Card Inserted on iPhone?
 
@@ -354,13 +346,6 @@ You can download Dr.Fone on your PC and use it to unlock your iPhone without dat
 - Now, click on the “Remove SIM Locked” tab on the next page. You can only use it to unlock iPhones.
 
 ![screen unlock page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 - Connect your iPhone and PC with a USB cable. Once your device is ready, click on the “Start” option to proceed with the sim unlock process.
 
@@ -385,13 +370,6 @@ You can download Dr.Fone on your PC and use it to unlock your iPhone without dat
 - After the process ends, all the sim restrictions on your iOS device are now removed and you can use sim cards from any network carrier. Next, click on the “Done” option to end the sim unlocking process.
 
 ![sim lock removed](https://images.wondershare.com/drfone/guide/remove-iphone-sim-7.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Why is SIM Unlocking Important?
 
@@ -421,20 +399,20 @@ Any of the methods above can work to get around the prohibition against using ot
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-reveal-the-disenchanted-instagrams-unfollowers/"><u>[New] Reveal the Disenchanted Instagram's Unfollowers</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-optimal-webcam-solutions-for-audio-professionals/"><u>[Updated] Optimal Webcam Solutions for Audio Professionals</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-cartooncast-comprehensive-24-guidebook/"><u>2024 Approved CartoonCast Comprehensive '24 Guidebook</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-oppo-a2-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Oppo A2 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/best-source-for-downloading-epson-artisan-1430-drivers-supported-by-windows-11108/"><u>Best Source for Downloading Epson Artisan 1430 Drivers: Supported by Windows 11/10/8</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-verizon-iphone-7-by-drfone-ios/"><u>How to Unlock Verizon iPhone 7</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-xiaomi-14-pro-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Xiaomi 14 Pro Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-nubia-z50-ultra-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Nubia Z50 Ultra Device SIM</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-tecno-camon-20-pro-5g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Tecno Camon 20 Pro 5G Device SIM</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-vivo-y100a-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Vivo Y100A Without PUK Codes</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-honor-90-pro-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Honor 90 Pro Phone? Unlock It Now</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-honor-magic-6-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Honor Magic 6 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://win-dash.techidaily.com/mastering-the-fix-simple-steps-to-address-bcm2045a0-driver-issues-successfully/"><u>Mastering the Fix: Simple Steps to Address Bcm2045a0 Driver Issues Successfully</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/securely-extract-and-backup-your-instagram-content-for-2024/"><u>Securely Extract and Backup Your Instagram Content for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-beginner-friendly-approach-to-iphone-screen-casts-for-2024/"><u>[New] Beginner-Friendly Approach to Iphone Screen Casts for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-the-ultimate-guide-to-ipad-based-time-lapse-videos/"><u>[Updated] 2024 Approved The Ultimate Guide to iPad-Based Time-Lapse Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-apple-iphone-6s-plus-and-ipad-screen-mirroring-app-drfone-by-drfone-ios/"><u>In 2024, Best Apple iPhone 6s Plus & iPad Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-google-pixel-8-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Google Pixel 8 Android SIM Unlock APK</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-infinix-hot-30-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Infinix Hot 30 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-realme-c53-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Realme C53 Phone Network-Ready</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-logitech-g29-controller-drivers-for-win-108-users/"><u>Latest Logitech G29 Controller Drivers for Win 10/8 Users</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-to-redmi-note-13-proplus-5g-converter-convert-mkv-for-redmi-note-13-proplus-5g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV to Redmi Note 13 Pro+ 5G converter - convert MKV for Redmi Note 13 Pro+ 5G</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagine-your-digital-life-4-key-strategies-to-refine-your-facebook-viewing/"><u>Reimagine Your Digital Life: 4 Key Strategies to Refine Your Facebook Viewing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-xiaomi-redmi-k70e-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Xiaomi Redmi K70E Device</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-realme-gt-5-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Realme GT 5 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-realme-11-5g-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Realme 11 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-google-pixel-8-pro-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Google Pixel 8 Pro Phone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlock-your-visuals-quick-and-costless-video-downloads-on-pinterest-for-2024/"><u>Unlock Your Visuals Quick & Costless Video Downloads on Pinterest for 2024</u></a></li>
 </ul></div>
 
