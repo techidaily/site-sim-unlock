@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to Unlock SIM Card on Realme 12 Pro 5G online without jailbreak
-date: 2024-08-17T03:09:37.661Z
-updated: 2024-08-18T03:09:37.661Z
+date: 2024-12-10T23:20:06.233Z
+updated: 2024-12-14T02:36:00.014Z
 tags: 
   - unlock
   - sim unlock
@@ -19,12 +19,13 @@ Isn't it so frustrating when you try to change your SIM or your network, but jus
 
 Chances are that if you've had a carrier locked phone for a while, you might have already forgotten what cellular freedom feels like. But we're here to remind you. All you have to do is break that carrier-lock, and you're good to go. However, you should be careful when doing so, cause if you try using a jailbreaking technique, it could have major repercussions. So we're here to give you some valuable advice about how to unlock iPhone 5, iPhone 5c, or even Android phones.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Unlock SIM Card on Realme 12 Pro 5G via jailbreak
 
 Before we get into telling you how to unlock iPhone 5, or the SIM Card on iPhone or Android, we should first tell you what Jailbreaking is. You might have heard of this term before, and I'm sure it sounded ominous to you. Jailbreak? It sounds awfully close to 'Prison break.' Well, considering the carrier lock is sort of like a prison for your cell, it is an accurate terminology. But Jailbreak isn't just about breaking the carrier lock. That might happen as a by-product, but the real purpose is to break free of the software restrictions which are generally applied to Apple devices. This might seem like a good option because, well, who doesn't want to break free of all of Apple's restrictions? But that always comes at several heavy risks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Threats of unlocking SIM via Jailbreak
 
@@ -32,9 +33,6 @@ Before we get into telling you how to unlock iPhone 5, or the SIM Card on iPhone
 
 This has got to be one of the biggest reasons for not jailbreaking your phone. It is not at all permanent! In fact, the moment you update your system, your jailbreak is lost and if you've started using a different SIM it will no longer function, and you're gonna have to go back to using that Carrier you tried so hard to escape from! It's really not worth the effort. Of course, you could stop updating altogether, but then that will bring us to…
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Unlock SIM Card on iPhone and Android via jailbreak](https://images.wondershare.com/drfone/article/2016/10/14771444107532.jpg)
 
 #### 2\. Risky
@@ -59,8 +57,6 @@ Didn't think so.
 
 As mentioned above, unlocking by jailbreaking is risky and only temporary. Therefore, this is not a very good choice. Honestly, a professional and reliable SIM unlock software is the best option. The good news for iPhone users is coming! Dr.Fone - Screen Unlock has launched a quality SIM unlock service for iPhone. Follow us to know more about it!
 
-
-
 ### Dr.Fone - Screen Unlock (iOS)
 
 Fast SIM Unlock for iPhone
@@ -72,14 +68,19 @@ Fast SIM Unlock for iPhone
 
 **3981454** people have downloaded it
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to use Dr.Fone SIM Unlock Service
 
 **Step 1.** Download Dr.Fone-Screen Unlock and click on “Remove SIM Locked”.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![screen unlock agreement](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2.** Start authorization verification process to continue. Make sure your iPhone has connected to the computer. Click on “Confirmed” to next step.
 
@@ -91,35 +92,27 @@ Fast SIM Unlock for iPhone
 
 **Step 5.** Select “Install” on the top right and then click the button again at the bottom. After finishing the installation, turn to “Settings → General”.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screen unlock agreement](https://images.wondershare.com/drfone/guide/remove-iphone-sim-7.png)
 
 Next, detailed steps will show on your iPhone screen, just follow it! And Dr.Fone will provide “Remove Setting” services for you after the SIM lock removed to enable Wi-Fi as normal. Click on our [iPhone SIM Unlock guide](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/) to learn more.
 
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg) safe & secure
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How to unlock SIM Card on iPhone and Android without jailbreak
 
 Now that you know what not to do, i.e., jailbreak, we can finally tell you how to unlock iPhone 5 in a legal, safe and secure manner online, without jailbreaking. Up until a while back, one of the reasons people chose to jailbreak their phones is because the legitimate means was such a headache in which you had to contact the carrier and request a change, and even then they could refuse after several weeks of 'verification.' However, now with the slow introduction of apps that can essentially do all the work for you, within a matter of 48 hours, it really makes no sense to jailbreak. So now we'll tell you how to unlock iPhone 5c using an Online iPhone unlock tool called DoctorSIM Unlock Service.
 
 SIM Unlock Service is really quite the revolutionary tool which just needs your IMEI code and can do all the work for you and send you the unlock code within a guaranteed period of 48 hours! It is safe, it is legal, it is hassle-free, and it doesn't even lapse your warranty, which proves that it is an officially approved means of unlocking your iPhone. However, before we tell you how to unlock iPhone 5, you should probably be able to verify if your phone is unlocked already.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: How to unlock SIM Card on iPhone with iPhoneIMEI.net without jailbreak
 
 [iPhoneIMEI.net](https://appleiphoneunlock.uk/network/Special%20Services/Activation%20Lock?aff=wondershare) uses an official method to unlock iPhone devices and whitelist your IMEI from Apple's database. Your iPhone will be unlocked automatically Over-The-Air, simply connect it to a Wifi network (Available for iOS 7, iOS 8, iOS 9, iOS 10 or higher, iOS 6 or lower should be unlocked by iTunes). So you don't need to send your iPhone to the network provider. The unlocked iPhone will never be relocked no matter you upgrade the OS or sync with iTunes.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![sim unlock iphone with iphoneimei.net](https://images.wondershare.com/drfone/article/2016/06/14670574228916.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **How to unlock iPhone with iPhoneIMEI?**
 
@@ -133,10 +126,11 @@ Step 4. Within 1-5 days, iPhoneImei will send you an email with subject "Congrat
 
 Well so now that you know all the basics of unlocking carrier phones and the risks of jailbreaking, hopefully you'll be well equipped to make informed decisions. Of course, [Dr.Fone - Screen Unlock (iOS)](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/) Service isn't the only one available in the market right now. There are a few more. However, this is still a relatively new area, and I can tell from personal experience that the other tools and softwares aren't completely broken in yet and are more prone to delays, errors, etc. DoctorSIM is an assuredly superior choice.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg) safe & secure
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Sim Unlock Realme 12 Pro 5G Phones without Code: 2 Ways to Remove Android Sim Lock
 
@@ -154,10 +148,11 @@ Now we are going to show you howto use GalaxSim Unlock to unlock an Android phon
 
 What we have to do first is to visit the Google Play Store to download Galaxsim and install it on the Android phone we want to unlock.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![galaxsim unlock-Download and Install GalaxSim](https://images.wondershare.com/drfone/article/2016/09/14737631349485.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2. Launch Galaxsim Unlock**
 
@@ -169,10 +164,11 @@ In this step, we have to open Galaxsim by tapping on its icon. You can easily fi
 
 Once Galaxsim is opened, you have to give your permission to run it onthe Realme 12 Pro 5G device. It will show you the status of the Android phone if it is locked ornot as in the screenshot. Viewing the status,you have to click on Unlock to start the process.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![galaxsim unlock-Check Status and Unlock](https://images.wondershare.com/drfone/article/2016/09/14737632402819.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step****4\. Phone Unlocked**
 
@@ -213,9 +209,6 @@ At first, you have to download Galaxy S Unlock from the Google Play Store using 
 
 After installing, open Galaxy S Unlock on your phone. It will ask you to save the EFS file before unlocking.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![galaxy s unlock-Open Galaxy S Unlock](https://images.wondershare.com/drfone/article/2016/09/14737667224488.jpg)
 
 **Step 3. Phone Unlocking**
@@ -223,6 +216,10 @@ After installing, open Galaxy S Unlock on your phone. It will ask you to save th
 This is the last step and your phone will be unlocked. It will also ask you to restart your phone to finish the process. Once it is unlocked, you can restore the EFS data and insert another SIM for using another network.
 
 ![galaxy s unlock-Phone Unlock](https://images.wondershare.com/drfone/article/2016/09/14737667693126.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Pros**
 
@@ -237,11 +234,10 @@ This is the last step and your phone will be unlocked. It will also ask you to r
 
 Reading this article lets you know the three best ways to sim unlock your Android without code. You can adopt any one of the mentioned methods to remove the restriction imposed on your phone. The steps as you read are simple and easy to follow. The most important fact about these methods is that you don’t needany unlocking code.
 
-
-
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Dr.Fone - Screen Unlock (Android)
 
 Unlock Your Realme 12 Pro 5G Device in a Flash
@@ -259,9 +255,6 @@ Getting carrier locked on the phone is one of the worst things that can happen e
 
 Now, having talked about SIM lock or carrier lock, it is also important to know whether a device is SIM locked or not, because not all phones are SIM locked. So, to find out whether your phone is network locked, you can check the documentation of the Realme 12 Pro 5G device that you received while purchasing. If the phone is unlocked, the “unlocked word would certainly appear on the receipt. To be sure and precise whether the phone is SIM locked, the best thing that can be done is to contact the carrier and check if the phone is carrier locked. Before that, you can even check the phone yourself by placing a different SIM in the phone and check whether it works. If the same issue persists even with different SIMs, then there is a good chance that the phone is carrier locked. Now that we know how to check if the phone is SIM locked, it is imperative to know how to unlock Android phone for different carrier. It is not that difficult a task to unlock carrier locked phones and there are a few methods to unlock such locked phones.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Asking the Carrier to Unlock
 
 One of the best options is getting in touch with the carrier and asking them to unlock the SIM locked phone. For that to happen, it is important to first know whether the phone is SIM locked and then whether the phone can be unlocked and if you are eligible to unlock the phone. There is an eligibility clause in contract for Smartphones bought on contract and if a specific time period is not up yet, then a termination fee is required to be paid by the user to break the contract in order to be able to use any SIM on the Realme 12 Pro 5G device after getting the unlock code.
@@ -317,14 +310,13 @@ Compared to connecting with your network provider, choosing an unlocking softwar
 - Sometimes it may need even seven days.
 - A 100% success rate cannot be guaranteed.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 There are many different methods to SIM unlock your Android device, however, they all have some disadvantages. Doctor SIM. provides fast and amazing solution for iPhone SIM lock. And we are trying hard to launch Android version. Stay tuned!
 
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Dr.Fone - Screen Unlock (Android)
 
@@ -336,9 +328,6 @@ Unlock Your Realme 12 Pro 5G Device in a Flash
 - No tech knowledge required, Simple, click-through, process.
 
 **3,981,454** people have downloaded it
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -352,9 +341,19 @@ Unlock Your Realme 12 Pro 5G Device in a Flash
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-polishing-your-presentations-expert-video-editing-for-instagram/"><u>[New] 2024 Approved Polishing Your Presentations Expert Video Editing for Instagram</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-pros-playbook-mastering-gameplay-logging-in-windows-10/"><u>[New] Pro's Playbook Mastering Gameplay Logging in Windows 10</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-superior-selections-pro-webcam-stabilizers/"><u>[New] Superior Selections Pro Webcam Stabilizers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-free-fires-sound-alteration-tactics/"><u>[Updated] Free Fire's Sound Alteration Tactics</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210503045-9781950253326-earth-witch/"><u>Earth Witch | Free Book</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-honor-100-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Honor 100 Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-samsung-galaxy-z-fold-5-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Samsung Galaxy Z Fold 5 Without PUK Codes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-huawei-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Huawei Phone</u></a></li>
+<li><a href="https://howto.techidaily.com/play-store-not-working-on-samsung-galaxy-a34-5g-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Samsung Galaxy A34 5G? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviews-and-insights-on-the-google-wireless-nest-doorbell-battery/"><u>Reviews and Insights on the Google Wireless Nest Doorbell (Battery)</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-motorola-moto-g24-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Motorola Moto G24 Phone</u></a></li>
+</ul></div>
 
