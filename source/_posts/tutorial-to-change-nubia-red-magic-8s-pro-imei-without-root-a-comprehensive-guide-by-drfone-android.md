@@ -1,7 +1,7 @@
 ---
 title: Tutorial to Change Nubia Red Magic 8S Pro IMEI without Root A Comprehensive Guide
-date: 2024-12-10T05:27:43.854Z
-updated: 2024-12-14T08:36:46.316Z
+date: 2024-12-22T07:41:40.879Z
+updated: 2024-12-23T02:13:40.275Z
 tags: 
   - unlock
   - sim unlock
@@ -19,15 +19,15 @@ As an Android device user, you may have come across a situation where you need t
 
 Changing your Android IMEI without root access may seem like a daunting task, but this comprehensive guide will walk you through the process step-by-step. Before proceeding, please note that altering your device's IMEI number can be illegal in some countries, and may void your warranty. Proceed with caution and at your own risk. Get to know **how to change IMEI number** now!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is IMEI and Why People Change The IMEI Number
 
 The International Mobile Equipment Identity (IMEI) is a unique identifier for every mobile device. It allows network providers and manufacturers to track and block devices if they are reported as lost or stolen. Changing your device's IMEI can help to unblock a blacklisted device, access certain network features and services, or maintain anonymity. However, be aware that altering your IMEI number is illegal in some countries and may void your warranty.
 
 ![imei number](https://images.wondershare.com/drfone/article/2023/05/imei-number.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### There are several uses of the IMEI number
 
@@ -57,10 +57,6 @@ Like many other things out there, changing Android IMEI has both advantages and 
 
 It is essential to know your Android device's IMEI for various reasons, such as registering the Nubia Red Magic 8S Pro device, reporting it as stolen or lost, checking warranty status, or verifying its authenticity. In this part, we will walk you through the various methods on how to find the IMEI on your Android device.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 1: Locate IMEI through the Settings App
 
 One of the easiest ways to find the IMEI number on your Android device is through the Settings app. Follow these simple steps:
@@ -83,12 +79,16 @@ Another quick method to find the IMEI number is by using the dialer app on your 
 - **Step 3:** The IMEI number will be displayed on the screen. Note it down or take a screenshot for reference.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 3: Check the Nubia Red Magic 8S Pro device Packaging or Receipt
 
 If you still have the original packaging or receipt for your Android device, you may find the IMEI number printed on it. Look for a label or sticker on the box that contains the Nubia Red Magic 8S Pro device's details, including the IMEI number.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 4: Find IMEI on a Removable Battery (for older devices)
 
@@ -107,18 +107,10 @@ Some Android devices have the IMEI number printed on the SIM card tray. To check
 
 ![check- -sim card tray](https://images.wondershare.com/drfone/article/2023/05/check-device-sim-card-tray.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Step 1:** Power off your Android device.
 - **Step 2:** Use the SIM card removal tool (or a paperclip) to eject the SIM card tray.
 - **Step 3:** Look for the IMEI number printed on the tray.
 - **Step 4:** Note it down or take a photo for reference.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Does IMEI Change With SIM Card?
 
@@ -150,6 +142,10 @@ Wondershare Dr.Fone is a tool that helps you keep your important data safe. It c
 ## Part 6: How to Change Android IMEI Number without Root?
 
 There are several methods to change your Android IMEI without root access. This tutorial will cover three popular methods: using MobileUncle Tools, Xposed Installer and IMEI Changer Pro, and MTK Engineering Mode.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Using Xposed Installer and IMEI Changer Pro
 
@@ -207,6 +203,10 @@ Follow these steps to change your IMEI using MTK Engineering Mode:
 - **Step 8:** Tap on the "Send AT Command" button. A confirmation message should appear.
 - **Step 9:** Restart your device, and the new IMEI number should be active.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 7: How to Fix Software Errors Without Changing IMEI Number?
 
 If the reason you are looking for IMEI number change is constant software errors, better ways exist. One of the best choices to resolve software errors on Android devices is to use [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/drfone-toolkit/). It stands as the world's first one-click Android repair tool. Dr.Fone offers an effective solution to address a range of Android system issues.
@@ -259,10 +259,6 @@ When you have a locked device, it is pretty much impossible to move from one net
 
 Whatever the reason, you should be able to unlock your device easily. But this has often proven difficult because of the fact that you need unlock codes. The problem is that many sites promise free unlocking codes for your device and many turn out to be fraudulent sites that use the word "free" in their advertising but actually require you to pay for the service. If you have been unsuccessfully searching for free unlocking codes for your device, look no further. This article compiles three of the best for Android and iPhone.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: 3 Ways to Find Unlocking Codes for Android Devices
 
 ### 1\. Unlock it Free
@@ -273,6 +269,10 @@ This site does exactly what it says it will do- unlock your device for free. It 
 
 ![ways to find unlocking codes-Unlock it Free](https://images.wondershare.com/drfone/article/2016/06/14670152348544.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In the next window, you will be required to enter your IMEI number, phone model, country and provider. You can get your IMEI number by dialling \*#06# on your device.
 
 Once you have entered all the details correctly click "Generate" and the website will give you seven different codes to unlock your device.
@@ -280,6 +280,10 @@ Once you have entered all the details correctly click "Generate" and the website
 ![ways to find unlocking codes-click ](https://images.wondershare.com/drfone/article/2016/06/14670152532630.jpg)
 
 Use the first one. If it fails to work, try the last code. 80% of people unlock their devices with either the first or the last code. Of this doesn't work either, try 2 more. But don't enter more than 4 codes as this will disable your device.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Trycktill
 
@@ -316,10 +320,6 @@ Unlock Your Nubia Red Magic 8S Pro Device in a Flash
 
 **3,981,454** people have downloaded it
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: 3 Ways to Find Unlocking Codes for iPhones
 
 For iPhone users there is a way to get unlocking codes for free. This is a new form of payment known as TrialPay. The following three sites offer you the chance to trade tasks for unlock codes.
@@ -350,6 +350,10 @@ On [SIM Unlock Service](https://www.doctorsim.com/libtrkafl.html?pc=43d47c30d945
 
 On the new window, fill in your phone IMEI number, model, contact email, and other required information. After your order is processed, the system will send you the unlocking code and instruction. You can then follow the instruction and use the unlocking code to unlock your phone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### [Dr.Fone - Screen Unlock (iOS)](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/)
 
 Unlock SIM Cards in a 3-Step Method
@@ -371,6 +375,10 @@ It is very important to note that by unlocking your device you are breaching the
 
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg)safe & secure
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The 6 Best SIM Unlock Services That Actually Work On Your Nubia Red Magic 8S Pro Device
 
 In our ever-connected world, the need for flexibility and freedom in choosing a mobile service provider is more crucial than ever. This part explores the top 6 SIM unlock services, shedding light on their features, advantages, and why Dr.Fone - Screen Unlock (iOS) stands out as the best in the industry.
@@ -389,27 +397,15 @@ In our ever-connected world, the need for flexibility and freedom in choosing a 
 
 ![screen unlock agreement](https://images.wondershare.com/drfone/guide/remove-iphone-sim-3.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4.** The following screen displays a progress window for the SIM unlocking process. After completion, a message prompts you to click “Done” to conclude the process.
 
 ![screen unlock agreement](https://images.wondershare.com/drfone/guide/remove-iphone-sim-6.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Here is a video for you to learn how to unlock your iPhone for use with a different carrier:**
 
 <iframe width="100%" height="450" src="https://www.youtube.com/embed/__hZHsdFMvI" frameborder="0" allowfullscreen="allowfullscreen"></iframe>
 
 Next, follow the instructions, and you will be able to use any carriers soon. Dr.Fone will  “Remove Setting” for your device at last to enable Wi-Fi connecting. Visit the [iPhone SIM Unlock guide](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/) to get more!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Unlock Base
 
@@ -434,6 +430,10 @@ To use the service, select the “Unlock iPhone” on the homepage. Then select 
 continue.  You will be sent to a checkout page where you can pay the amount. The codes will be sent to the email address you provided at checkout.
 
 ![SIM unlock service](https://images.wondershare.com/drfone/article/2016/06/14670574228916.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Doctor SIM
 
@@ -483,24 +483,14 @@ You will be directed to a payment page where you can make your payment.  The co
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-key-concepts-in-quantum-hdr-mastery/"><u>[New] Key Concepts in Quantum HDR Mastery</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-mastering-the-ritual-of-independent-instagram-sound-creation/"><u>[New] Mastering the Ritual of Independent Instagram Sound Creation</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-itel-p55t-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Itel P55T Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-oppo-a18-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Oppo A18 Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-motorola-edge-2023-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Motorola Edge 2023 Phone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-iphone-15-plus-online-without-jailbreak-by-drfone-ios/"><u>How to Unlock SIM Card on iPhone 15 Plus online without jailbreak</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-samsung-galaxy-f04-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Samsung Galaxy F04 Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-honor-magic-6-pro-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Honor Magic 6 Pro Device SIM</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-samsung-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Samsung Devices</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-remove-apple-iphone-7-plus-sim-lock-by-drfone-ios/"><u>In 2024, How to Remove Apple iPhone 7 Plus SIM Lock?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-hot-40-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Infinix Hot 40 Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ring-freefire-gameplay-essential-youtube-tips/"><u>Mastering FreeFire Gameplay Essential YouTube Tips</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/step-by-step-remedies-for-reviving-malfunctioning-computer-speakers/"><u>Step-by-Step Remedies for Reviving Malfunctioning Computer Speakers</u></a></li>
-<li><a href="https://howto.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-oneplus-nord-ce-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/stunning-visual-journey-through-japan-unique-wallpaper-image-and-photo-set-by-yl-software-technologies/"><u>Stunning Visual Journey Through Japan: Unique Wallpaper, Image and Photo Set by YL Software Technologies</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-samsung-galaxy-s23-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Samsung Galaxy S23 Device</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-nokia-c12-plus-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Nokia C12 Plus Phone Hassle-Free</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-netgears-ex3700-wireless-repeater-ac750-performance-and-features/"><u>The Ultimate Verdict on Netgear's EX3700 Wireless Repeater (AC750) - Performance & Features</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-the-best-apps-for-recording-and-editing-reaction-videos-on-the-go-for-2024/"><u>Updated The Best Apps for Recording and Editing Reaction Videos on the Go for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-global-gross-earnings-of-youtube-luminaries-for-2024/"><u>[Updated] Global Gross Earnings of YouTube Luminaries for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-examining-the-economic-impact-of-mr-beast/"><u>2024 Approved Examining the Economic Impact of Mr. Beast</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/decoding-roblox-outages-knowing-the-difference-between-you-and-the-platform/"><u>Decoding Roblox Outages: Knowing the Difference Between You & The Platform</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-oppo-a18-is-unlocked-by-drfone-android/"><u>How To Check if Your Oppo A18 Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-realme-gt-3-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Realme GT 3 online without jailbreak</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-nokia-105-classic-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Nokia 105 Classic Without PUK Codes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-apple-iphone-se-in-minutes-with-iccid-code-everything-you-need-to-know-by-drfone-ios/"><u>In 2024, Unlock Your Apple iPhone SE in Minutes with ICCID Code Everything You Need to Know</u></a></li>
+<li><a href="https://fox-that.techidaily.com/reviving-the-perfect-sound-10-methods-to-solve-noise-issues-with-airpods/"><u>Reviving the Perfect Sound: 10 Methods to Solve Noise Issues with AirPods</u></a></li>
+<li><a href="https://games-able.techidaily.com/uncovering-the-essence-of-idle-status-in-online-chats/"><u>Uncovering the Essence of Idle Status in Online Chats</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Infinix Smart 7 HD Device
-date: 2024-12-11T16:13:01.083Z
-updated: 2024-12-14T02:19:44.358Z
+date: 2024-12-17T09:54:32.791Z
+updated: 2024-12-22T22:26:22.648Z
 tags: 
   - unlock
   - sim unlock
@@ -20,7 +20,7 @@ If your SIM card is disabled, you probably entered the incorrect PIN code too fr
 Your mobile phone display can say “PIN blocked” or "Enter PUK code." PUK stands for PIN Unblocking Key in the PUK code. The PUK code is seldom given to you when you receive your membership in the US. Contact Your Infinix Smart 7 HD provider's customer support if you don't know your PUK code.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Why Was My Sim Card Blocked?
@@ -32,6 +32,10 @@ Sometimes when you forget your pin and keep on entering the wrong one, you can g
 ### 2\. Wrong PUK code entered
 
 Sims are frequently blocked; therefore, if you have your PUK, keep it in a secure location separate from your phone. This is because it is the key to unlocking your SIM. The SIM will be permanently disabled, and you will have to buy a new SIM card if you input the wrong PUK ten times in a row.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: What To Do When I Blocked My Sim Card?
 
@@ -55,17 +59,21 @@ PIN2: The default code for your SIM card; If this code has been altered, use the
 
 PUK2: Your PIN2's unlock code if it has been blocked.
 
-## Part 3: How Can I Have My PUK Code To Unlock Sim Card?
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Part 3: How Can I Have My PUK Code To Unlock Sim Card?
 
 ### 1\. Get it from sim card packaging
 
 The packing box is the best and easiest place to look for the PUK code to unlock your SIM card.
 
 ![sim card packaging to unlock sim card](https://images.wondershare.com/drfone/article/2022/10/how-to-unlock-puk-blocked-sim-card-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You probably have memories of the flat plastic package you got when you bought a SIM card. Your PUK and default SIM pin code should be written on the package.
 
@@ -111,7 +119,7 @@ Dr.Fone enables users to unblock their sim cards within minutes. It is a fast, s
 ![screen unlock page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 - Use a USB cable to connect your PC and iPhone. After you ensure that your device is connected, click on the "Start" option to begin the sim unlock process.
@@ -133,7 +141,7 @@ Dr.Fone enables users to unblock their sim cards within minutes. It is a fast, s
 ![sim lock removed](https://images.wondershare.com/drfone/guide/remove-iphone-sim-7.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -141,10 +149,6 @@ Dr.Fone enables users to unblock their sim cards within minutes. It is a fast, s
 People who still have their SIM pack shouldn't have trouble figuring out "how to acquire a PUK code to unlock a SIM card". However, for those without it, getting in touch with customer service may be the only option. As long as your SIM card has accurate information, this process should be simple.
 
 Once you have the proper PUK to [unlock your SIM card](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/), don't be reluctant to write it down somewhere you can easily find it later. It might not be a terrible idea to store it on your Google Drive. This way, you will not see PUK blocked, as you know how to unlock PUK blocked sim card.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Unlock SIM Card on Infinix Smart 7 HD online without jailbreak
 
@@ -163,10 +167,6 @@ Before we get into telling you how to unlock iPhone 5, or the SIM Card on iPhone
 This has got to be one of the biggest reasons for not jailbreaking your phone. It is not at all permanent! In fact, the moment you update your system, your jailbreak is lost and if you've started using a different SIM it will no longer function, and you're gonna have to go back to using that Carrier you tried so hard to escape from! It's really not worth the effort. Of course, you could stop updating altogether, but then that will bring us to…
 
 ![Unlock SIM Card on iPhone and Android via jailbreak](https://images.wondershare.com/drfone/article/2016/10/14771444107532.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 2\. Risky
 
@@ -207,15 +207,15 @@ Fast SIM Unlock for iPhone
 
 ![screen unlock agreement](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2.** Start authorization verification process to continue. Make sure your iPhone has connected to the computer. Click on “Confirmed” to next step.
 
 **Step 3.** Your device will get a configuration profile. Then follow the guides to unlock screen. Select “Next” to continue.
 
 ![screen unlock agreement](https://images.wondershare.com/drfone/guide/remove-iphone-sim-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4.** Turn off the popup page and go to “Settings → Profile Downloaded”. Then choose “Install” and type your screen passcode.
 
@@ -226,10 +226,6 @@ Fast SIM Unlock for iPhone
 Next, detailed steps will show on your iPhone screen, just follow it! And Dr.Fone will provide “Remove Setting” services for you after the SIM lock removed to enable Wi-Fi as normal. Click on our [iPhone SIM Unlock guide](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/) to learn more.
 
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg)safe & secure
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to unlock SIM Card on iPhone and Android without jailbreak
 
@@ -242,10 +238,6 @@ SIM Unlock Service is really quite the revolutionary tool which just needs your 
 [iPhoneIMEI.net](https://appleiphoneunlock.uk/network/Special%20Services/Activation%20Lock?aff=wondershare) uses an official method to unlock iPhone devices and whitelist your IMEI from Apple's database. Your iPhone will be unlocked automatically Over-The-Air, simply connect it to a Wifi network (Available for iOS 7, iOS 8, iOS 9, iOS 10 or higher, iOS 6 or lower should be unlocked by iTunes). So you don't need to send your iPhone to the network provider. The unlocked iPhone will never be relocked no matter you upgrade the OS or sync with iTunes.
 
 ![sim unlock iphone with iphoneimei.net](https://images.wondershare.com/drfone/article/2016/06/14670574228916.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **How to unlock iPhone with iPhoneIMEI?**
 
@@ -288,7 +280,7 @@ The default PIN is usually printed on the back of the SIM card or its packaging.
 ![sim card lock pin](https://images.wondershare.com/drfone/article/2024/02/sim-network-unlock-pin-02.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you’ve forgotten the **SIM PIN code**, you can use the PUK (PIN Unlock Key) code to unlock the SIM and set a new PIN. The PUK code is also printed on the SIM card packaging, but be careful, as entering the wrong PUK code too many times can permanently lock the SIM card.
@@ -313,6 +305,10 @@ Unlocking your device can be useful if you:
 - Are planning a trip abroad and want to use a local SIM card instead.
 
 ![international travel illustration](https://images.wondershare.com/drfone/article/2024/02/sim-network-unlock-pin-04.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Still haven’t finished your contract with your original carrier and want to keep the phone but use a different service.
 - Bought a phone second-hand locked to the previous owner’s network.
@@ -355,6 +351,10 @@ So, if you plan to switch carriers without a **SIM network unlocks PIN** code, 
 - **Step 2:** After you select **iOS** as your device type, choose the **Remove SIM Locked** option.
 
 ![dr.fone screen unlock tools](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - **Step 3:** Click **Start** to initiate the process. On the next screen, click **Unlock Now** to confirm your device information.
 
@@ -414,14 +414,17 @@ _**Tips:** Are you searching for a powerful Screen Unlock tool? No worries as [D
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-the-ultimate-guide-elevate-your-gaming-experience-with-voice-customization-in-free-fire/"><u>[New] The Ultimate Guide Elevate Your Gaming Experience with Voice Customization in Free Fire</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-micro-business-video-advertising-insights-for-2024/"><u>[Updated] Micro-Business Video Advertising Insights for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-excellence-unleashed-in-depth-analysis-of-the-oneplus-nord-n100/"><u>Affordable Excellence Unleashed: In-Depth Analysis of the OnePlus Nord N100</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-realme-12-5g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Realme 12 5G Device SIM</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone XS Max? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-xiaomi-redmi-note-12t-pro-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Xiaomi Redmi Note 12T Pro Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tips-and-tricks-to-tell-if-your-apple-iphone-14-plus-is-unlocked-by-drfone-ios/"><u>In 2024, Tips And Tricks To Tell if Your Apple iPhone 14 Plus Is Unlocked</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-vivo-g2-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Vivo G2 Phones</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-rated-ipad-air-protective-sleeves-comprehensive-review-by-tech-gurus/"><u>Top-Rated iPad Air Protective Sleeves : Comprehensive Review by Tech Gurus</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-easy-guide-to-taking-and-saving-twitters-gifs/"><u>[Updated] 2024 Approved The Easy Guide to Taking and Saving Twitter's Gifs</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-building-a-solid-foundation-windows-10s-video-creation-basics/"><u>[Updated] Building a Solid Foundation Windows 10'S Video Creation Basics</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-navigating-the-world-of-online-streaming-wirecast-and-facebook/"><u>[Updated] Navigating the World of Online Streaming Wirecast & Facebook</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-google-pixel-8-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Google Pixel 8 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-itel-a60-device-sim-by-drfone-android/"><u>Easily Unlock Your Itel A60 Device SIM</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-improved-tv-reception-in-depth-review-of-the-clearstream-2v-indooroutdoor-hd-antenna-style-meets-performance/"><u>Experience Improved TV Reception: In-Depth Review of the ClearStream 2V Indoor/Outdoor HD Antenna – Style Meets Performance</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-realme-gt-5-pro-is-unlocked-by-drfone-android/"><u>How To Check if Your Realme GT 5 Pro Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-8-plus-official-method-to-unlock-your-iphone-8-plus-by-drfone-ios/"><u>How To Unlock iPhone 8 Plus Official Method to Unlock Your iPhone 8 Plus</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-poco-f5-5g-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Poco F5 5G Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-factory-unlock-your-telstra-iphone-11-by-drfone-ios/"><u>In 2024, How To Factory Unlock Your Telstra iPhone 11</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-a-found-iphone-x-drfone-by-drfone-ios/"><u>In 2024, How To Unlock A Found iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-samsung-galaxy-z-fold-5-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Samsung Galaxy Z Fold 5 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
 </ul></div>
 
