@@ -1,7 +1,7 @@
 ---
 title: In 2024, Easily Unlock Your Xiaomi Civi 3 Device SIM
-date: 2024-08-29T11:23:20.377Z
-updated: 2024-08-30T11:23:20.377Z
+date: 2024-12-25T18:55:11.102Z
+updated: 2024-12-28T19:22:18.670Z
 tags: 
   - unlock
   - sim unlock
@@ -43,10 +43,11 @@ If your device is eligible for unlocking, all you need to do is contact the carr
 
 To begin with, you need to confirm your IMEI number. Dial \*#06# on your device and the IMEI number will appear on the screen. Copy this number to a secure location or wrote it down somewhere.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![How to Unlock your Android Phone](https://images.wondershare.com/drfone/article/2016/06/14670084741192.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The next step is to find a reputable service that will unlock your Android device for you. This is action you should take only if you are absolutely desperate and your carrier can't unlock your device for you. This is because many of these sites are unregulated and many of them are not reliable.
 
@@ -56,9 +57,6 @@ You should also know that many of them will charge a certain amount for your ser
 
 You will need to enter the IMEI number as part of the information you need to provide before they can unlock your device.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Troubleshooting Android SIM Unlock
 
 There are lots of issues you may face when you try to unlock your device. The following are just some of the troubleshooting actions you can take if you encounter these problems.
@@ -76,8 +74,9 @@ If your device freezes during the unlocking process it typically means that you 
 There are some LG models that cannot be unlocked. These models include LG U300, LG U310, LG U8180, LG U8330, LG U8120, LG U8360, LG U8380, LGU880, and LG U890. If your device is one of these it can't be unlocked by your carrier. You may need to look into other ways of unlocking your device.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Solutions for Xiaomi  Network Unlock
 
 If the network of your Xiaomi  phone is locked, this article is for you. SIM-locked phones can be quite troublesome to deal with. You cannot really transfer to a network you prefer or else, it will just not work. Even though it is a little time-consuming to unlock Xiaomi  network, it is not impossible. But you may require some efficient methods to fix your troubles. There are a number of ways you can consider and use to get Xiaomi  unlock phone. In this article, you will get to know all the methods you can use to have your Xiaomi Civi 3 unlocked.
@@ -88,9 +87,6 @@ Phones by Xiaomi  are rather popular among people and even now, people continue 
 
 Xiaomi  phone network unlock means you will be able to shift your Xiaomi  to another network that you prefer and use it without experiencing any restrictions. Otherwise, you will be unable to make any calls and will have connectivity problems. A key benefit of having your Xiaomi Civi 3 unlocked is you will be able to move to the network of your choice without any problem. In addition to it, you will not face any connectivity problems.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: Unlock your Xiaomi  network with 3 Methods
 
 These are the three methods you can consider to have your Xiaomi Civi 3 unlocked:
@@ -106,9 +102,6 @@ Once you have received the code from your network service provider, you need to 
 - Turn the phone on after inserting the SIM card from another provider
 - Enter the given unlock code when required
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![enter code](https://images.wondershare.com/drfone/article/2022/08/htc-network-unlock-1.jpg)
 
 ### 2\. IMEI code
@@ -121,9 +114,6 @@ Follow these simple steps to have your Xiaomi Civi 3 unlocked:
 - Select the model and brand of your Xiaomi  phone
 - Give details about the network you are using on your Xiaomi 
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![choose model](https://images.wondershare.com/drfone/article/2022/08/htc-network-unlock-2.jpg)
 
 - After entering the details, you need to click on Look for Code
@@ -137,10 +127,11 @@ It will take around 1-8 working days to have your Xiaomi Civi 3 Unlocked. You ne
 - Visit the site of Sim Unlock and then select the model and brand of your phone. You also need to offer details about the network of your phone.
 - After that, you need to enter the IMEI number of your phone
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![sim unlock](https://images.wondershare.com/drfone/article/2022/08/htc-network-unlock-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - Change the SIM card and turn your phone on. After that, you need to enter the unlock code into your phone and it will get your Xiaomi Civi 3 unlocked
 
@@ -162,7 +153,15 @@ When you have a locked device, it is pretty much impossible to move from one net
 
 Whatever the reason, you should be able to unlock your device easily. But this has often proven difficult because of the fact that you need unlock codes. The problem is that many sites promise free unlocking codes for your device and many turn out to be fraudulent sites that use the word "free" in their advertising but actually require you to pay for the service. If you have been unsuccessfully searching for free unlocking codes for your device, look no further. This article compiles three of the best for Android and iPhone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: 3 Ways to Find Unlocking Codes for Android Devices
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Unlock it Free
 
@@ -170,9 +169,6 @@ Website URL: [http://www.unlockitfree.com/](http://www.unlockitfree.com/)
 
 This site does exactly what it says it will do- unlock your device for free. It offer a great unlocking service especially for Nokia devices. It is also very easy to use. All you have to do once you're on the homepage is enter the model number of your device (this is typically the number or code that follows the name of the Xiaomi Civi 3 device) and then click "find"
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ways to find unlocking codes-Unlock it Free](https://images.wondershare.com/drfone/article/2016/06/14670152348544.jpg)
 
 In the next window, you will be required to enter your IMEI number, phone model, country and provider. You can get your IMEI number by dialling \*#06# on your device.
@@ -183,15 +179,16 @@ Once you have entered all the details correctly click "Generate" and the website
 
 Use the first one. If it fails to work, try the last code. 80% of people unlock their devices with either the first or the last code. Of this doesn't work either, try 2 more. But don't enter more than 4 codes as this will disable your device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Trycktill
 
 Website URL: [http://www.trycktill.com/](http://www.trycktill.com/)
 
 This one is more a website for mobile content but it can also generate free mobile unlocking codes. Click on "Unlock" on the top bar menu to begin. The site is in Swedish so may want to translate it before you can use it. You can do that by clicking on the British Flag at the bottom of the page.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ways to find unlocking codes-Trycktill](https://images.wondershare.com/drfone/article/2016/06/14670164597759.jpg)
 
 Select your phone model from the drop down menu and then select the model number and enter the IMEI number. Finally, agree to the terms and conditions and then click "Generate Code."
@@ -210,24 +207,24 @@ Once you have downloaded the software, launch to on your computer and then provi
 
 ![ways to find unlocking codes-NokiaFree](https://images.wondershare.com/drfone/article/2016/06/14670169377909.jpg)
 
-
-
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Dr.Fone - Screen Unlock (Android)
 
 Unlock Your Xiaomi Civi 3 Device in a Flash
 
 - Pattern, PIN, password, fingerprints & face screen lock can all be unlocked.
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 - Bypass Android FRP lock without a PIN or Google account.![New icon](https://images.wondershare.com/drfone/others/new_23.png)
 - Unlock mainstream Android brands like Samsung, Huawei, LG, Xiaomi, etc.
 - No tech knowledge required, Simple, click-through, process.
 
 **3,981,454** people have downloaded it
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: 3 Ways to Find Unlocking Codes for iPhones
 
@@ -241,14 +238,8 @@ On this site you can trade a few tasks for iPhone unlock codes by choosing to pa
 
 To use it all you have to do is select the phone model and the phone type. You will then be required to enter your IMEI number and when you get to checkout, choose TrialPay to complete the order. You will complete a task and then get your codes delivered to your inbox.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ways to find unlocking codes-Free Unlocks](https://images.wondershare.com/drfone/article/2016/06/14670906618902.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. iPhoneIMEI
 
 Website URL: [iPhoneIMEI.net](https://appleiphoneunlock.uk/network/Special%20Services/Activation%20Lock?aff=wondershare)
@@ -265,11 +256,10 @@ On [SIM Unlock Service](https://www.doctorsim.com/libtrkafl.html?pc=43d47c30d945
 
 On the new window, fill in your phone IMEI number, model, contact email, and other required information. After your order is processed, the system will send you the unlocking code and instruction. You can then follow the instruction and use the unlocking code to unlock your phone.
 
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Dr.Fone - Screen Unlock (iOS)
 
 Unlock SIM Cards in a 3-Step Method
@@ -281,6 +271,10 @@ Unlock SIM Cards in a 3-Step Method
 
 **3,981,454** people have downloaded it
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Popular Youtube Video for Unlocking Your Xiaomi Civi 3
 
 Here we've found a popular video on Youtube for you to follow and sim unlock your phone.
@@ -289,13 +283,7 @@ Here we've found a popular video on Youtube for you to follow and sim unlock you
 
 It is very important to note that by unlocking your device you are breaching the contract you have with your service provider. Also, note that if the codes fail to work the first 4 times don't try to enter a fifth time as this will generally disable your device. This will mean that you will be unable to use the Xiaomi Civi 3 device. Proceed with caution.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Safe download](https://images.wondershare.com/drfone/article/2022/05/security.svg) safe & secure
-
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -309,10 +297,26 @@ It is very important to note that by unlocking your device you are breaching the
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ed-must-see-asmr-talents-online-for-2024/"><u>[Updated] Must-See ASMR Talents Online for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-professional-panoramic-vision-leading-360-cameras-of-2023-for-2024/"><u>[Updated] Professional Panoramic Vision Leading 360° Cameras of 2023 for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-leading-mesh-wireless-network-solutions/"><u>Discover the Leading Mesh Wireless Network Solutions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gratis-webm-to-vob-konverter-mooyavi-online-tool/"><u>Gratis Webm-to-Vob Konverter - Mooyavi Online Tool</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-infinix-smart-8-hd-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Infinix Smart 8 HD Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-do-i-sim-unlock-my-apple-iphone-14-by-drfone-ios/"><u>In 2024, How Do I SIM Unlock My Apple iPhone 14?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-honor-magic-5-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Honor Magic 5 online without jailbreak</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-infinix-hot-30-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Infinix Hot 30 5G Without PUK Codes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-ultimate-platform-question-whos-the-best-vimeo-or-youtubeplusdailymotion/"><u>In 2024, The Ultimate Platform Question Who's the Best - Vimeo or YouTube+Dailymotion?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tips-and-tricks-to-tell-if-your-apple-iphone-12-is-unlocked-by-drfone-ios/"><u>In 2024, Tips And Tricks To Tell if Your Apple iPhone 12 Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-nokia-c32-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Nokia C32 Phone Network-Ready</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-edge-selecting-the-best-mobile-and-desktop-video-editors/"><u>Instagram Edge Selecting the Best Mobile & Desktop Video Editors</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/m4raiff-by-movavi/"><u>M4R形式に自由に変換!無料AIFFコンバーター by Movavi</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/pushing-limits-top-4-software-for-exceeding-windows-maxed-volume/"><u>Pushing Limits: Top 4 Software for Exceeding Windows’ Maxed Volume</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-s17e-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo S17e Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-nokia-130-music-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Nokia 130 Music Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-vivo-y55s-5g-2023-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Vivo Y55s 5G (2023) Phone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-distinctions-nlp-vs-machine-learning-explained/"><u>Unveiling the Distinctions: NLP Vs. Machine Learning Explained</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/wiederherstellung-verlorener-aufnahmen-von-einer-canon-kamera-myrecover/"><u>Wiederherstellung Verlorener Aufnahmen Von Einer Canon-Kamera - MyRecover</u></a></li>
+</ul></div>
 
