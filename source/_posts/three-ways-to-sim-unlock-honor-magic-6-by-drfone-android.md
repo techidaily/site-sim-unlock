@@ -1,7 +1,7 @@
 ---
 title: Three Ways to Sim Unlock Honor Magic 6
-date: 2024-12-23T17:31:58.393Z
-updated: 2024-12-28T22:27:15.713Z
+date: 2025-01-02T18:47:54.046Z
+updated: 2025-01-07T18:35:40.222Z
 tags: 
   - unlock
   - sim unlock
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/3a8d29dc752129bc6cecd890184a07ba60927370b
 You probably purchased your Honor Magic 6 for a significant discount but are now stuck with the same network for a couple of years. You loved the Honor Magic 6 device but your network provider does not have any plans that exactly suit your needs. To release your device from your current network's clutches, you will need to unlock your phone.
 
 There are three ways you can do it and this post will go through each method so that you can find one that you are most comfortable with. Do note that if your contract has ended with your network provider, this "How to unlock Honor Magic 6" post can be skipped as you can just ask them to unlock your phone or purchase a [sim network unlock pin](https://drfone.wondershare.com/unlock/unlock-samsung-sim-network-unlock-pin.html) for a minimal price.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Honor Magic 6 Unlock Code
 
@@ -92,10 +96,6 @@ One that we can attest to is  **[MyMobileUnlocking.com](http://mymobileunlockin
 
 ![sim unlock sony xperia](https://images.wondershare.com/drfone/article/2016/08/14708923461372.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - Once you are finished, click the **Place order** button.
 
 ![unlock sony xperia](https://images.wondershare.com/drfone/article/2016/08/14708923457478.jpg)
@@ -105,7 +105,7 @@ One that we can attest to is  **[MyMobileUnlocking.com](http://mymobileunlockin
 ![sony sim unlock](https://images.wondershare.com/drfone/article/2016/08/14708923455523.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 - You will then get the confirmation and code emailed to you.
@@ -114,6 +114,10 @@ One that we can attest to is  **[MyMobileUnlocking.com](http://mymobileunlockin
 
 ![sim network unlock pin sony xperia](https://images.wondershare.com/drfone/article/2016/08/unlock-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: The benefits of an unlocked Honor Magic 6
 
 If you now know how to unlock Honor Magic 6 but still do not know its advantages, we are here to help.
@@ -121,10 +125,6 @@ If you now know how to unlock Honor Magic 6 but still do not know its advantages
 As indicated in the introduction, unlocked phone users can freely choose the plans they subscribed to---on any carriers, in any country. Therefore, if you travel frequently around the world, having an unlocked Honor Magic 6 would be beneficial. Using a local SIM card is much cheaper than paying for exorbitant roaming charges.
 
 You can also benefit from an unlocked Honor Magic 6 if you are the kind of person who likes to take advantage of current offers provided by your local carriers. Prepaid plans are always changing in terms of offering so having the flexibility of changing carriers and prepaid plans can help you save money in the long run.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 6: The downside of an unlocked Honor Magic 6
 
@@ -148,15 +148,15 @@ Thankfully, there are a few easy ways to unlock your Honor Magic 6 phone with fr
 
 SIM Unlock Service is one of the best and trust-worthy SIM unlock code generators available on the market. This is not a free option, but it is so effective that many users find it is worth the price. It saves you so much hassle that it is worth the small upfront fee. Doctorsim will permanently unlock your phone, enabling you to use your phone on all carriers around the world. Most importantly, using DoctorSim will not void your warranty.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to use DoctorSim SIM Unlock Service to unlock Honor Magic 6 phones?
 
 Step 1. Go to [DoctorSim's official website](https://www.doctorsim.com/libtrkafl.html?pc=43d47c30d945bcbd7d9527f4049f649a&refe=https://www.doctorsim.com/us-en/?scp&euro), so you know that you can trust it. Click on the ‘Select Your Honor Magic 6’ button, and then select Honor from the list of brands.
 
 Step 2. Fill in your phone’s information and your contact details in the following window, including the phone IMEI, phone model, and your email. Once your order is processed, the system will send you your personalized unlock code and unlocking instructions. You can then follow the instructions to unlock your Honor Magic 6 phone. Easy!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Unlockitfree.com for free Honor unlock codes
 
@@ -188,17 +188,9 @@ Hopefully you will have success – although, this is not guaranteed (as it is w
 
 3\. Once you enter all of this information correctly, click the ‘continue’ button. This button will take you to a payment page, and you will have to pay $9.99. At this point you will be sent an unlock code, and you should be able to unlock your phone and use it anywhere in the world.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: Unlock-Free for Honor unlock code
 
 Unlock-Free offers free unlock codes for Honor, as well as for other cellphone models and brands. This is a reliable site that will do the job with little hassle.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Using Unlock-Free to get an Honor unlock code
 
@@ -225,7 +217,7 @@ Unlock Your Honor Phone Without Password
 If your Honor Magic 6 phone is locked, you don’t need to worry. It is really easy to find Honor unlocking codes online, and within a few minutes you should be able to unlock your phone and get using it on other networks and around the world. Enjoy!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Top 10 Honor Magic 6 Android SIM Unlock APK
@@ -240,25 +232,21 @@ This is an app that is designed to unlock the SIM for Samsung Galaxy devices. It
 
 ![SIM Unlock APK](https://images.wondershare.com/drfone/article/2016/06/14670275467759.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Unlock your Phone
 
 This is another Android app that can help you unlock your device's SIM. It is fast, reliable and safe to use. It can be used to unlock all brands including Blackberry, LG, HTC, Huawei, Motorola, Samsung, Sony and Alcatel devices. You can pay for the unlocking service via PayPal.
 
 ![SIM Unlock APK](https://images.wondershare.com/drfone/article/2016/06/14670275632519.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Device SIM unlock
 
 This is another app that can be used to unlock a whole host of devices including almost all Samsung Models, LG models, HTC, Alcatel and Sony devices. It is also very easy to use and has received quite a lot of good reviews from those who have used it.
 
 ![SIM Unlock APK](https://images.wondershare.com/drfone/article/2016/06/14670277898757.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### [Dr.Fone - Screen Unlock (Android)](https://tools.techidaily.com/wondershare-dr-fone-unlock-android-screen/)
 
@@ -267,6 +255,10 @@ Unlock Your Honor Magic 6 Device in a Flash
 - Pattern, PIN, password, fingerprints & face screen lock can all be unlocked.
 - Bypass Android FRP lock without a PIN or Google account.![New icon](https://images.wondershare.com/drfone/others/new_23.png)
 - Unlock mainstream Android brands like Samsung, Huawei, LG, Xiaomi, etc.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - No tech knowledge required, Simple, click-through, process.
 
@@ -285,6 +277,10 @@ Download Link: [https://play.google.com/store/apps/details?id=io.unlock.htc](htt
 As the name suggests this app can be used to unlock HTC devices. It is compatible with just about all HTC devices and although the app can be installed for free, you have to pay for the unlock codes you need to unlock the Honor Magic 6 device. It is very easy to use, with an interface that provides assistance. It can unlock devices for any carrier in the world. They also accept PayPal as a form of payment.
 
 ![SIM Unlock APK](https://images.wondershare.com/drfone/article/2016/06/14670276309421.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Unlock your Phone Fast & Secure
 
@@ -306,6 +302,10 @@ This app will unlock almost all devices in the shortest possible time. Like all 
 
 ![SIM Unlock APK](https://images.wondershare.com/drfone/article/2016/06/14670280341620.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9\. Mobile Unlocking app
 
 Another really reliable Android app that unlocks your device's SIM. This one has been around for quite a while and with a few bug fixes it has grown to become a very reliable app. There is just one constant complaint that we've noted with the app- most people say the unlocking service is too expensive. It has however been used by a lot of people and can unlock just about any device as long as you have the IMEI number.
@@ -318,11 +318,11 @@ This app has been around providing unlocking services for over 10 years. It is a
 
 ![SIM Unlock APK](https://images.wondershare.com/drfone/article/2016/06/14670281024156.jpg)
 
-We hope you are able to find an app to unlock your device. Let us know how the app of your choice worked out for you.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+We hope you are able to find an app to unlock your device. Let us know how the app of your choice worked out for you.
 
 ## Part 2. Best Android SIM Unlock Service
 
@@ -352,18 +352,20 @@ Step 3. The system will send you the unlock code and instruction email shortly. 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ering-the-fan-base-youtubes-pathway-to-more-followers/"><u>Conquering the Fan Base YouTube's Pathway to More Followers</u></a></li>
-<li><a href="https://facebook.techidaily.com/evasion-tactics-against-online-platforms-shadowbans/"><u>Evasion Tactics Against Online Platform's Shadowbans</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-y100i-power-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your Vivo Y100i Power 5G Is Unlocked</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-13-to-other-iphone-14-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 13 To Other iPhone 14 devices? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-agni-2-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Lava Agni 2 5G PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-xiaomi-redmi-note-12-pro-4g-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Xiaomi Redmi Note 12 Pro 4G Phone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-x90s-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo X90S to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-verizon-apple-iphone-13-pro-by-drfone-ios/"><u>In 2024, How to Unlock Verizon Apple iPhone 13 Pro</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-vivo-t2x-5g-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Vivo T2x 5G Android SIM Unlock APK</u></a></li>
-<li><a href="https://win-web3.techidaily.com/schritt-fur-schritt-anleitung-zur-wiederauffindung-von-geloschten-facebook-bildern/"><u>Schritt-Für-Schritt-Anleitung Zur Wiederauffindung Von Gelöschten Facebook-Bildern</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-xiaomi-redmi-note-12-5g-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Xiaomi Redmi Note 12 5G Device</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/top-windows-11-video-editing-tools-filmora-and-others-for-2024/"><u>Top Windows 11 Video Editing Tools Filmora & Others for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-oneplus-12r-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For OnePlus 12R Phones</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-free-tools-to-save-big-screen-fb-video/"><u>[New] 2024 Approved Free Tools to Save Big Screen FB Video</u></a></li>
+<li><a href="https://common-error.techidaily.com/banish-minecraft-lags-top-tips-and-tricks-for-optimal-performance/"><u>Banish Minecraft Lags: Top Tips & Tricks for Optimal Performance</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/enhancing-viewing-experience-how-to-clean-up-your-samsung-tv-by-deleting-unwanted-apps/"><u>Enhancing Viewing Experience: How to Clean Up Your Samsung TV by Deleting Unwanted Apps</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-advice-uninstalling-facebook-from-android-easy-steps-included/"><u>Expert Advice: Uninstalling Facebook From Android - Easy Steps Included!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-tecno-pop-8-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Tecno Pop 8</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-honor-x8b-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Honor X8b</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-poco-c65-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Poco C65 Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-poco-m6-pro-5g-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Poco M6 Pro 5G Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-infinix-note-30-5g-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Infinix Note 30 5G Device</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-how-to-convert-video-voice-to-text-online-for-free/"><u>New 2024 Approved How To Convert Video Voice to Text Online for Free?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-high-quality-long-lasting-mouse-mats/"><u>The Ultimate Guide to High-Quality, Long-Lasting Mouse Mats</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-honor-magic5-ultimate-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Honor Magic5 Ultimate Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-zte-nubia-flip-5g-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on ZTE Nubia Flip 5G Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-xiaomi-redmi-13c-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Xiaomi Redmi 13C Phones</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How To Unlock SIM Cards Of Itel P40+ Without PUK Codes
-date: 2024-09-03T04:58:14.925Z
-updated: 2024-09-04T04:58:14.925Z
+date: 2025-01-06T16:03:52.576Z
+updated: 2025-01-07T17:43:43.194Z
 tags: 
   - unlock
   - sim unlock
@@ -21,11 +21,19 @@ This comprehensive guide explores **how to unlock SIM cards without the PUK Code
 
 ![back of sim packaging puk code](https://images.wondershare.com/drfone/article/2024/02/unlock-sim-without-puk-code-01.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Official Ways To Unlock SIM Cards With a Lost PUK Code
 
 Locking your SIM card with a forgotten PIN can be a frustrating experience, especially when your trusty PUK code seems to have vanished. While unauthorized methods exist to unlock your SIM card, venturing down that path can lead to complications and potential security risks. This guide prioritizes safe and official methods, ensuring a smooth and secure unlocking process with the help of your mobile carrier.
 
 Firstly, remember that the PUK code typically arrives alongside your SIM card in its original packaging. Keeping this information safe alongside your other crucial documents is always helpful. However, if memory betrays you and the packaging is nowhere to be found, this part will show you **how to unlock SIM cards without PUK codes** with the help of your carrier.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 1: Contacting Your Carrier’s Customer Service
 
@@ -42,9 +50,6 @@ Here’s what you’ll need:
 - **Receive your PUK code/new SIM card.** Once verified, the representative will provide you with your PUK code. Be sure to write it down in a secure location for future reference. They might offer you a replaced SIM card if no PUK codes exist.
 - **Unlock your SIM card.**Enter the PUK code on your phone following the specific instructions provided by your carrier. This typically involves entering the PUK code followed by a new PIN.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_1770544" src="//a.impactradius-go.com/gen-ad-code/5597632/1770544/20702" width="300" height="600" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ### Method 2: Retrieving the PUK Code Through Your Carrier’s Website
 
 Many mobile carriers offer self-service options on their websites, allowing you to manage your account and access information independently. If your carrier provides this functionality, you can retrieve your PUK code online without contacting customer service. This way, you’ll learn **how to unlock SIM cards without PUK numbers**.
@@ -55,6 +60,10 @@ Here’s how it might work:
 
 ![jio website](https://images.wondershare.com/drfone/article/2024/02/unlock-sim-without-puk-code-03.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 2:** Different carriers have varying website layouts, so refer to their specific instructions or search features to find the dedicated section for retrieving PUK codes.
 - **Step 3:** Similar to contacting customer service, you might need to verify your account ownership through security questions or other verification methods.
 - **Step 4:** Once verified, your PUK code should be displayed on the screen or sent to your registered email address.
@@ -63,6 +72,10 @@ Remember, these steps are general guidelines, and specific procedures may vary d
 
 By following these official routes, you can safely and securely bypass the PUK code hurdle and regain access to your vital mobile services. Stay tuned for Part 2, where you’ll explore alternative unlocking methods for those who prefer a different approach.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Unlocking SIM Cards With the Help of a Third-Party Tool
 
 While official methods through your carrier are always recommended, some situations might arise where you’ll need to learn **how to unlock SIM cards without PUK** **codes.** Third-party tools like [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/drfone-toolkit/) offer an alternative approach in such cases. This section explores this option, emphasizing transparency and responsible usage.
@@ -70,8 +83,9 @@ While official methods through your carrier are always recommended, some situati
 Disclaimer: Before proceeding, be aware that utilizing third-party tools might void your device’s warranty and potentially introduce security risks. Choose trusted, reputable applications with clear user guides and a history of responsible operation. Proceed with caution and at your discretion.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_1834903" src="//a.impactradius-go.com/gen-ad-code/5597632/1834903/16836" width="1080" height="1920" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Introducing Wondershare Dr.Fone
 
 Dr.Fone stands out as a trusted and versatile tool for SIM unlocking. It surpasses mere unlocking functionality, offering a comprehensive suite of features like data repair, system repair, screen unlock, and more, catering to various mobile needs under one software. With over 50 million active users, Dr.Fone boasts a solid reputation for reliability and effectiveness.
@@ -84,14 +98,21 @@ To use this powerful feature, follow the steps below:
 
 - **Step 1:** Grab Dr.Fone from its official website, install it, and fire it up.
 
-
 - **Step 2:** Head to **Toolbox > Screen Unlock > iOS** (remember, only for iOS devices).
 
 ![dr.fone homepage](https://images.wondershare.com/drfone/guide/drfone-home.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 3:** Click **Remove SIM Locked** to start the unlocking process.
 
 ![dr.fone screen unlock page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 - **Step 4:** Click **Start** when you see this page.
 
@@ -101,16 +122,10 @@ To use this powerful feature, follow the steps below:
 
 ![dr.fone sim phone verify page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-3.png)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_1983575" src="//a.impactradius-go.com/gen-ad-code/5597632/1983575/22993" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 - **Step 6:** Be aware that jailbreaking your iPhone is necessary. Use the provided **JailBreak Guide** or **Watch Video** if needed.
 
 ![dr.fone sim jailbreak page](https://images.wondershare.com/drfone/guide/remove-iphone-sim-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 - **Step 7:** Carefully follow the on-screen instructions to ensure a smooth process. Then, click **Continue**.
 
 ![dr.fone instructions sim operation](https://images.wondershare.com/drfone/guide/remove-iphone-sim-5.png)
@@ -119,24 +134,20 @@ To use this powerful feature, follow the steps below:
 
 ![dr.fone sim lock removal success](https://images.wondershare.com/drfone/guide/remove-iphone-sim-7.png)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_2135471" src="//a.impactradius-go.com/gen-ad-code/5597632/2135471/18498" width="1080" height="1920" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Navigating SIM card lockouts can be stressful, but remember, you have options! While official routes through your carrier are always recommended, tools like Wondershare Dr.Fone teach **how to unlock SIM cards without PUK codes**. Remember, responsible usage is key when choosing third-party tools. If you opt for this route, Dr.Fone stands out for its reliability and extensive features beyond SIM unlocking.
 
 So, breathe easy, explore your options, and choose the path best suits your situation. With the right approach, you’ll use your unlocked SIM card quickly! And if your phone needs some help, remember that Dr.Fone is there to help you unlock not only your SIM but also a world of possibilities for your mobile companion.
 
-
-
 ## Easily Unlock Your Itel P40+ Device SIM
 
 Is your Android phone SIM locked? Having an unlocked device can have its benefits but most of the time most people don't even know whether their device is SIM locked or not. In this article we are going to address this issue. We are going to begin by helping you find out whether your phone is locked or not and if it is, how you can [sim unlock](https://tools.techidaily.com/wondershare/drfone/unlock-android-screen/) the Itel P40+ device and enjoy the benefits of an unlocked phone.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: How to Know if your Android is SIM Locked
 
 It is important to note that not all phones are SIM locked. You can find out if yours is by checking the Itel P40+ device's documentation. If you see the words "unlocked" on the initial receipt then you know that the Itel P40+ device is not SIM locked.
@@ -165,21 +176,18 @@ To begin with, you need to confirm your IMEI number. Dial \*#06# on your device 
 
 ![How to Unlock your Android Phone](https://images.wondershare.com/drfone/article/2016/06/14670084741192.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The next step is to find a reputable service that will unlock your Android device for you. This is action you should take only if you are absolutely desperate and your carrier can't unlock your device for you. This is because many of these sites are unregulated and many of them are not reliable.
 
 You should also know that many of them will charge a certain amount for your service. You can try <https://www.safeunlockcode.com/> which is one of the more reputable ones we have found.
 
 ![android SIM unlock-safeunlockcode](https://images.wondershare.com/drfone/article/2016/06/14670084936436.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You will need to enter the IMEI number as part of the information you need to provide before they can unlock your device.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## Part 3: Troubleshooting Android SIM Unlock
 
 There are lots of issues you may face when you try to unlock your device. The following are just some of the troubleshooting actions you can take if you encounter these problems.
@@ -196,9 +204,6 @@ If your device freezes during the unlocking process it typically means that you 
 
 There are some LG models that cannot be unlocked. These models include LG U300, LG U310, LG U8180, LG U8330, LG U8120, LG U8360, LG U8380, LGU880, and LG U890. If your device is one of these it can't be unlocked by your carrier. You may need to look into other ways of unlocking your device.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Unlocking Your Android Phone: Everything You Need to Know to Use Any SIM Card
 
 Getting carrier locked on the phone is one of the worst things that can happen especially when you feel there is not much you can do about it. But that’s not really true. There are few ways that could help alleviate this problem or which could come as a help in such circumstances when the Smartphone is carrier locked. This problem often requires help from the carrier or network and can be easily sorted on doing so.
@@ -223,11 +228,9 @@ _**
 • There is a certain time period which if not over yet, unlocking the phone would require termination fee.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024338/7443" target="_top" id="2024338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024338" border="0" alt="https://techidaily.com" width="1456" height="180"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Professional Reputable Smartphone Unlock Service
 
 If you have tried out contacting the carrier and there is no way the carrier is unlocking your phone, you can opt for professional unlock service which could be of help. But finding such a professional service is not an easy task. There are some sites and service providers which require the IMEI number of the phone to create unlock codes. IMEI number of the phone is given to the professional SIM unlock service post which, they generate a special character combination which can be used to get the cell phone out of network restrictions. So, the phone can be unlocked remotely by using the special remote unlock codes.
@@ -251,12 +254,6 @@ _**
 
 • Reliability on such service providers is also another factor which requires attention.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Unlock Android to Use Any SIM via Doctor SIM
 
 Compared to connecting with your network provider, choosing an unlocking software may be a quicker and easier way. [Doctor SIM](https://www.doctorsim.com/gb-en/?scp) could be a good option. Let me introduce more about it.
@@ -276,8 +273,6 @@ Compared to connecting with your network provider, choosing an unlocking softwar
 
 There are many different methods to SIM unlock your Android device, however, they all have some disadvantages. Doctor SIM. provides fast and amazing solution for iPhone SIM lock. And we are trying hard to launch Android version. Stay tuned!
 
-
-
 ### Dr.Fone - Screen Unlock (Android)
 
 Unlock Your Itel P40+ Device in a Flash
@@ -285,13 +280,9 @@ Unlock Your Itel P40+ Device in a Flash
 - Pattern, PIN, password, fingerprints & face screen lock can all be unlocked.
 - Bypass Android FRP lock without a PIN or Google account.![New icon](https://images.wondershare.com/drfone/others/new_23.png)
 - Unlock mainstream Android brands like Samsung, Huawei, LG, Xiaomi, etc.
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 - No tech knowledge required, Simple, click-through, process.
 
 **3,981,454** people have downloaded it
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -305,11 +296,26 @@ Unlock Your Itel P40+ Device in a Flash
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-add-context-and-meaning-with-strategic-text-overlays-on-tiktok-videos/"><u>[Updated] 2024 Approved Add Context and Meaning with Strategic Text Overlays on TikTok Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/vob-wmv-movavi/"><u>全功能線上即時 VOB 轉換成 WMV - 完美體驗與 Movavi 轉換器</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/arctis-wart-free-auditory-experience-on-windows-troubleshooting-and-fixes/"><u>Arctis Wart-Free Auditory Experience on Windows: Troubleshooting and Fixes</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-samsung-galaxy-m14-4g-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Samsung Galaxy M14 4G? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-xr-3-ways-to-unlock-by-drfone-ios/"><u>How To Unlock Apple iPhone XR 3 Ways To Unlock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-t-mobile-apple-iphone-15-plus-online-without-sim-card-by-drfone-ios/"><u>How to Unlock T-Mobile Apple iPhone 15 Plus online without SIM Card?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-infinix-smart-7-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Infinix Smart 7 Device SIM</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-lava-yuva-3-pro-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Lava Yuva 3 Pro Phone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-how-to-combine-photos-for-captivating-instagram-stories/"><u>In 2024, How to Combine Photos for Captivating Instagram Stories</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-samsung-galaxy-m34-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Samsung Galaxy M34 Without PUK Codes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-zte-blade-a73-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of ZTE Blade A73 5G Without PUK Codes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-t-mobile-iphone-13-online-without-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock T-Mobile iPhone 13 online without SIM Card?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-vivo-y77t-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Vivo Y77t Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-oneplus-nord-n30-5g-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock OnePlus Nord N30 5G</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/securing-your-content-adobe-presenter-captures-for-2024/"><u>Securing Your Content Adobe Presenter Captures for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-restoring-airpods-microphone-functionality-on-windows/"><u>Step-by-Step Guide: Restoring AirPods Microphone Functionality on Windows #</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/step-by-step-guide-setting-up-your-new-printer-with-ease-tech-tips-by-yl-software/"><u>Step-by-Step Guide: Setting Up Your New Printer with Ease - Tech Tips by YL Software</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-computing-world-in-depth-electronics-analysis/"><u>Tom's Computing World: In-Depth Electronics Analysis</u></a></li>
+</ul></div>
 
