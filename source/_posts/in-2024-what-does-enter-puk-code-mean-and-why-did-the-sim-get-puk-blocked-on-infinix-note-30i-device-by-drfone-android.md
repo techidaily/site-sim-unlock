@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Infinix Note 30i Device
-date: 2025-01-03T18:34:40.975Z
-updated: 2025-01-07T16:47:28.923Z
+date: 2025-01-08T23:18:06.213Z
+updated: 2025-01-13T21:02:25.927Z
 tags: 
   - unlock
   - sim unlock
@@ -19,27 +19,15 @@ If your SIM card is disabled, you probably entered the incorrect PIN code too fr
 
 Your mobile phone display can say “PIN blocked” or "Enter PUK code." PUK stands for PIN Unblocking Key in the PUK code. The PUK code is seldom given to you when you receive your membership in the US. Contact Your Infinix Note 30i provider's customer support if you don't know your PUK code.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Why Was My Sim Card Blocked?
 
 ### 1\. 3 times incorrect Pin entered
 
 Sometimes when you forget your pin and keep on entering the wrong one, you can get PUK Blocked. You can utilize three to five chances, and your sim gets blocked when you enter the incorrect pin in all of these attempts.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Wrong PUK code entered
 
 Sims are frequently blocked; therefore, if you have your PUK, keep it in a secure location separate from your phone. This is because it is the key to unlocking your SIM. The SIM will be permanently disabled, and you will have to buy a new SIM card if you input the wrong PUK ten times in a row.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: What To Do When I Blocked My Sim Card?
 
@@ -55,6 +43,10 @@ You got an email with multiple codes, including PUK1, PIN2, and PUK2.
 
 ![go to settings and customize to unblock sim](https://images.wondershare.com/drfone/article/2022/10/how-to-unlock-puk-blocked-sim-card-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If your PIN is locked, use PUK1 to unlock it.
 
 Only a few phones employ PIN2 and PUK2 codes to restrict access to certain SIM card functionalities.
@@ -64,7 +56,7 @@ PIN2: The default code for your SIM card; If this code has been altered, use the
 PUK2: Your PIN2's unlock code if it has been blocked.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How Can I Have My PUK Code To Unlock Sim Card?
@@ -83,10 +75,6 @@ Please look around your home for the package and look on the back for the key. O
 
 ![look at the back of the package and find puk code](https://images.wondershare.com/drfone/article/2022/10/how-to-unlock-puk-blocked-sim-card-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In either case, the correct PUK has 8 numbers and should be simple to enter to unlock your SIM card.
 
 ### 2\. Have it from carrier website
@@ -98,7 +86,7 @@ But happily, a lot of cell companies let you access your account on their app or
 ![go to career website and check your sim card puk](https://images.wondershare.com/drfone/article/2022/10/how-to-unlock-puk-blocked-sim-card-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 It shouldn't be an issue if you were utilizing or signed in to the platform before your SIM was disabled. However, if not, you might not be able to access anything since you could be asked to input an OTP to verify your identity.
@@ -112,6 +100,10 @@ It's time to call customer support, which should be simpler for most individuals
 Use a different phone to call your customer service number and describe the issue. And following a series of inquiries, they should offer your PUK number as identification.
 
 ![solve the sim card not accessed issue](https://images.wondershare.com/drfone/article/2022/10/how-to-unlock-puk-blocked-sim-card-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 However, customer service won't release the code if you can't back yourself up. And at that point, there's probably nothing further you can do. Therefore, make sure you have some information, such as your name, address, date of birth, etc., before you call them.
 
@@ -149,6 +141,10 @@ Dr.Fone enables users to unblock their sim cards within minutes. It is a fast, s
 People who still have their SIM pack shouldn't have trouble figuring out "how to acquire a PUK code to unlock a SIM card". However, for those without it, getting in touch with customer service may be the only option. As long as your SIM card has accurate information, this process should be simple.
 
 Once you have the proper PUK to [unlock your SIM card](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/), don't be reluctant to write it down somewhere you can easily find it later. It might not be a terrible idea to store it on your Google Drive. This way, you will not see PUK blocked, as you know how to unlock PUK blocked sim card.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Top IMEI Unlokers for Your Infinix Note 30i Phone
 
@@ -209,11 +205,11 @@ iPhone SIM Unlock to Work on Any Carrier Worldwide
 
 **3,981,454** people have downloaded it
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Top 4 IMEI Unlokers for iPhone
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. My IMEI Unlock
 
@@ -239,6 +235,10 @@ Yet another reliable service that easily unlocks your iPhone using the Infinix N
 
 ![IMEI unlokers](https://images.wondershare.com/drfone/article/2016/06/14668684492894.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Cell Unlocker
 
 Link: [http://www.cellunlocker.net/apple-iphone-unlock-solution.php](http://www.cellunlocker.net/apple-iphone-unlock-solution.php)
@@ -259,10 +259,6 @@ Whatever the reason, you should be able to unlock your device easily. But this h
 
 ## Part 1: 3 Ways to Find Unlocking Codes for Android Devices
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Unlock it Free
 
 Website URL: [http://www.unlockitfree.com/](http://www.unlockitfree.com/)
@@ -278,7 +274,7 @@ Once you have entered all the details correctly click "Generate" and the website
 ![ways to find unlocking codes-click ](https://images.wondershare.com/drfone/article/2016/06/14670152532630.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Use the first one. If it fails to work, try the last code. 80% of people unlock their devices with either the first or the last code. Of this doesn't work either, try 2 more. But don't enter more than 4 codes as this will disable your device.
@@ -297,6 +293,10 @@ In the results page you should see a code as well as instructions on how to use 
 
 This website unlocks LG, AEG, MAXON, Nokia, Panasonic, Vitel and Siemens devices.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. NokiaFree
 
 Website URL: [http://www.nokiafree.org/](http://www.nokiafree.org/)
@@ -306,10 +306,6 @@ Despite the website name and its URL, this site doesn't just unlock Nokia device
 Once you have downloaded the software, launch to on your computer and then provide the required information, the IMEI number, your Phone model and make, country and service provider. Then click on "Calculate" and the program will generate unlock codes for you and how to use them.
 
 ![ways to find unlocking codes-NokiaFree](https://images.wondershare.com/drfone/article/2016/06/14670169377909.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### [Dr.Fone - Screen Unlock (Android)](https://tools.techidaily.com/wondershare-dr-fone-unlock-android-screen/)
 
@@ -322,6 +318,10 @@ Unlock Your Infinix Note 30i Device in a Flash
 - No tech knowledge required, Simple, click-through, process.
 
 **3,981,454** people have downloaded it
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: 3 Ways to Find Unlocking Codes for iPhones
 
@@ -388,22 +388,22 @@ It is very important to note that by unlocking your device you are breaching the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-fiscal-landmarks-understanding-mr-beasts-financial-growth/"><u>[New] 2024 Approved Fiscal Landmarks Understanding Mr. Beast’s Financial Growth</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-essential-list-of-top-tier-9-mic-recorder-apps-for-2024/"><u>[Updated] Essential List of Top-Tier 9 Mic Recorder Apps for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-expert-techniques-for-adding-borders-to-your-instagram-images-for-2024/"><u>[Updated] Expert Techniques for Adding Borders to Your Instagram Images for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-how-to-check-tiktok-video-copyright-before-uploading-for-2024/"><u>[Updated] How to Check Tiktok Video Copyright Before Uploading for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/hp-officejet-pro-9015-updated-driver-downloads-at-no-cost/"><u>HP OfficeJet Pro 9015 - Updated Driver Downloads at No Cost!</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-xiaomi-redmi-a2plus-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Xiaomi Redmi A2+ to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-honor-x50iplus-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Honor X50i+ Location by Number | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-infinix-note-30-pro-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Infinix Note 30 Pro Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-the-definitive-guide-making-memorable-youtube-music-videos/"><u>In 2024, The Definitive Guide Making Memorable YouTube Music Videos</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-xiaomi-redmi-13c-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Xiaomi Redmi 13C Android SIM Unlock APK</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-realme-c55-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Realme C55 Phone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-honor-100-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Honor 100 Device</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/1719258042287-reclaiming-chrome-in-w11-easy-to-follow-remediation-tips/"><u>Reclaiming Chrome in W11 - Easy-to-Follow Remediation Tips</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-infinix-hot-40-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Infinix Hot 40 Device</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-honor-play-7t-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Honor Play 7T Phone Hassle-Free</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-itel-p55plus-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Itel P55+ Phone Hassle-Free</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-tecno-pova-5-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Tecno Pova 5 Device</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-chrome-os-vocal-personalization-guide-review-of-the-best-speech-converters/"><u>[New] Chrome OS Vocal Personalization Guide Review of the Best Speech Converters</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/gniting-your-individual-brand-flame/"><u>[New] Igniting Your Individual Brand Flame</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-unlock-full-potential-obs-and-facebook-integration/"><u>[Updated] 2024 Approved Unlock Full Potential OBS & Facebook Integration</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/comprehensive-tips-for-film-recording-on-multiple-platforms/"><u>Comprehensive Tips for Film Recording on Multiple Platforms</u></a></li>
+<li><a href="https://fox-access.techidaily.com/fabricate-viral-gifs-via-giphy-portal-for-2024/"><u>Fabricate Viral Gifs via Giphy Portal for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-bootloader-easily-by-drfone-android/"><u>How to Unlock Poco Bootloader Easily</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-gionee-f3-pro-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Gionee F3 Pro online without jailbreak</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-vivo-s18-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Vivo S18 Device SIM</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-nokia-c12-plus-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Nokia C12 Plus Phone? Unlock It Now</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-samsung-galaxy-a25-5g-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Samsung Galaxy A25 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-tecno-pova-6-pro-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Tecno Pova 6 Pro 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-zte-nubia-z60-ultra-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your ZTE Nubia Z60 Ultra Device</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/is-it-possible-to-use-airpods-as-headphones-on-the-nintendo-switch-console/"><u>Is It Possible to Use AirPods as Headphones on the Nintendo Switch Console?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/lone-audio-device-repair-manual/"><u>Lone Audio Device Repair Manual</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-samsung-galaxy-m34-5g-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Samsung Galaxy M34 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://win-answers.techidaily.com/step-by-step-guide-downloading-jamendos-music-content-at-no-cost-on-your-desktop/"><u>Step-by-Step Guide: Downloading Jamendo's Music Content at No Cost on Your Desktop</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-nokia-c210-by-drfone-android/"><u>Three Ways to Sim Unlock Nokia C210</u></a></li>
 </ul></div>
 
