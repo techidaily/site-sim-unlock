@@ -1,7 +1,7 @@
 ---
 title: In 2024, What Is a SIM Network Unlock PIN? Get Your Realme 11 Pro Phone Network-Ready
-date: 2025-01-12T17:57:30.448Z
-updated: 2025-01-13T18:02:42.762Z
+date: 2025-01-17T18:51:24.479Z
+updated: 2025-01-20T02:34:06.638Z
 tags: 
   - unlock
   - sim unlock
@@ -21,10 +21,6 @@ That’s why we’ve created this comprehensive guide to help you unlock your ph
 
 ![enter sim network unlock pin](https://images.wondershare.com/drfone/article/2024/02/sim-network-unlock-pin-01.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Why Is Your Realme 11 Pro Asking for a SIM Network Unlock PIN?
 
 You just bought a new phone, excited to use it with a new SIM card. But your phone pops up with a request for a PIN code to unlock it. What’s that all about, and what do you enter? There are two main reasons why your phone might be asking for a SIM PIN or unlock code:
@@ -43,19 +39,23 @@ The default PIN is usually printed on the back of the SIM card or its packaging.
 
 ![sim card lock pin](https://images.wondershare.com/drfone/article/2024/02/sim-network-unlock-pin-02.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you’ve forgotten the **SIM PIN code**, you can use the PUK (PIN Unlock Key) code to unlock the SIM and set a new PIN. The PUK code is also printed on the SIM card packaging, but be careful, as entering the wrong PUK code too many times can permanently lock the SIM card.
 
 Not knowing the **SIM unlock PIN** code can be frustrating, especially if you want to switch mobile carriers. So, in the next part, we’ll explore whether it’s possible to unlock a SIM network-locked iPhone device.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Can a SIM Network Locked iPhone Be Unlocked?
 
 Yes, a SIM network-locked iPhone can be unlocked by your network provider. Insert a new SIM card, and you’ll be prompted to enter the **SIM Network Unlock PIN**. After inputting the correct unlock code, your iPhone is ready to use with any carrier.
 
 ![sim not valid message on iphone](https://images.wondershare.com/drfone/article/2024/02/sim-network-unlock-pin-03.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you are thinking about unlocking your iPhone, it’s crucial to grasp what a **SIM Network Unlock PIN** is and how it functions.
 
@@ -116,6 +116,10 @@ So, if you plan to switch carriers without a **SIM network unlocks PIN** code, 
 
 ![unlock sim lock](https://images.wondershare.com/drfone/guide/remove-iphone-sim-3.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - **Step 4:** Jailbreak your iPhone using the guide or video in the pop-up window.
 
 ![jailbreak device prompt](https://images.wondershare.com/drfone/guide/remove-iphone-sim-4.png)
@@ -157,7 +161,7 @@ Instead, opt for safe and legal methods. Contact your carrier directly to reques
 _**Tips:** Are you searching for a powerful Screen Unlock tool? No worries as [Dr.Fone](https://tools.techidaily.com/wondershare-dr-fone-unlock-android-screen/) is here to help you. Download it and start a seamless unlock experience!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Ways To Find Unlocking Codes For Realme 11 Pro Phones
@@ -209,7 +213,7 @@ Once you have downloaded the software, launch to on your computer and then provi
 ![ways to find unlocking codes-NokiaFree](https://images.wondershare.com/drfone/article/2016/06/14670169377909.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### [Dr.Fone - Screen Unlock (Android)](https://tools.techidaily.com/wondershare-dr-fone-unlock-android-screen/)
@@ -224,9 +228,17 @@ Unlock Your Realme 11 Pro Device in a Flash
 
 **3,981,454** people have downloaded it
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: 3 Ways to Find Unlocking Codes for iPhones
 
 For iPhone users there is a way to get unlocking codes for free. This is a new form of payment known as TrialPay. The following three sites offer you the chance to trade tasks for unlock codes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Free Unlocks
 
@@ -239,7 +251,7 @@ To use it all you have to do is select the phone model and the phone type. You w
 ![ways to find unlocking codes-Free Unlocks](https://images.wondershare.com/drfone/article/2016/06/14670906618902.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. iPhoneIMEI
@@ -257,10 +269,6 @@ SIM Unlock Service supports both iPhone and Android devices. Even though it is n
 On [SIM Unlock Service](https://www.doctorsim.com/libtrkafl.html?pc=43d47c30d945bcbd7d9527f4049f649a&refe=https://www.doctorsim.com/us-en/?scp&euro) official website, click on Select Your Realme 11 Pro button, and then select your phone brand among all the smart phone brands.
 
 On the new window, fill in your phone IMEI number, model, contact email, and other required information. After your order is processed, the system will send you the unlocking code and instruction. You can then follow the instruction and use the unlocking code to unlock your phone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### [Dr.Fone - Screen Unlock (iOS)](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/)
 
@@ -291,6 +299,10 @@ So, **how to change the PIN on an Android phone**’s SIM card? This article wil
 
 ![a phone sim card](https://images.wondershare.com/drfone/article/2024/02/how-to-change-pin-on-android-phone-01.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Why Does Changing Your SIM PIN Code Matter on a New Phone?
 
 Your SIM PIN code acts as a password for your SIM card, which stores your phone number, contacts, and other essential data. Unlike the PIN you use to unlock your phone, the SIM PIN code is a separate layer of security. If someone tries to use your SIM card in another phone without the correct PIN, they won’t be able to access your network or data.
@@ -319,10 +331,6 @@ It is crucial if you store sensitive info on your SIM or use your phone for work
 
 Choose a PIN code for your SIM that’s easy for you to remember but challenging for others to guess. Avoid using birthdays, anniversaries, or other easily identifiable information. By taking a few minutes to **change the PIN code of the SIM card**, you’ll gain a significant security advantage for your new phone and data.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How To Change Pin on Android Phone SIM Cards?
 
 Keeping your SIM card secure is crucial for protecting your data and privacy. Thankfully, Android allows you to easily change your SIM card PIN to a more personal and memorable code. But before you begin:
@@ -349,17 +357,9 @@ Here’s **how to find and manage the SIM PIN code on Android**:
 
 ![change sim pin code on android](https://images.wondershare.com/drfone/article/2024/02/how-to-change-pin-on-android-phone-04.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 - **Step 6:** Input your current SIM card PIN code and tap **OK**.
 
 ![enter old sim pin](https://images.wondershare.com/drfone/article/2024/02/how-to-change-pin-on-android-phone-05.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - **Step 7:** Enter your desired new PIN code and tap **OK**.
 - **Step 8:** Re-enter your new SIM card PIN code and tap **OK** to confirm.
@@ -375,6 +375,10 @@ First, avoid guessing your SIM PIN or PUK code. Every wrong guess increases the 
 However, there might also be situations where you’re locked out due to a carrier-restricted SIM card. If a quick resolution is important or you want to keep your current SIM card, consider using [Wondershare Dr.Fone](https://tools.techidaily.com/wondershare/drfone/drfone-toolkit/).
 
 ![network carrier sim locked](https://images.wondershare.com/drfone/drfone-2022/img/step3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Here’s a list of Dr. Fone’s key features:
 
@@ -396,10 +400,6 @@ Note that this process may need you to jailbreak your iPhone. Make sure you unde
 - **Step 3:** Select **Remove SIM Lock**ed to unlock the SIM PIN code, then click **Start** on the next screen.
 
 ![dr.fone screen unlock tools](https://images.wondershare.com/drfone/guide/remove-iphone-sim-1.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 - **Step 4:** Dr.Fone automatically recognizes your iOS device model, version, and other details. Click **Unlock Now** to confirm the details and proceed with the unlocking.
 
@@ -435,18 +435,22 @@ _**Tips:** Are you searching for a powerful Screen Unlock tool? No worries as [D
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-video-kits-to-set-the-tone-right-away/"><u>2024 Approved Free Video Kits to Set the Tone Right Away</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722975855148-effortless-setup-obtain-samsung-m2070fw-driver-software-now/"><u>Effortless Setup: Obtain Samsung M2070FW Driver Software Now</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-vivo-y55s-5g-2023-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Vivo Y55s 5G (2023) Phone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-tecno-camon-30-pro-5g-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Tecno Camon 30 Pro 5G FRP Locks</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-motorola-moto-g14-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Motorola Moto G14 Phone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-realme-12-5g-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Realme 12 5G Phone?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-motorola-moto-g24-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Motorola Moto G24 online without jailbreak</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-perfect-flying-companions-the-top-kids-drones/"><u>In 2024, Perfect Flying Companions The Top Kids' Drones</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tips-and-tricks-to-tell-if-your-iphone-15-pro-max-is-unlocked-by-drfone-ios/"><u>In 2024, Tips And Tricks To Tell if Your iPhone 15 Pro Max Is Unlocked</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-meizu-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Meizu Android SIM Unlock APK</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/investigating-dji-raptor-vr-headset-effectiveness/"><u>Investigating DJi Raptor VR Headset Effectiveness</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-and-solutions-resolve-the-livekernelevent-144-mistake/"><u>Troubleshooting & Solutions: Resolve the LiveKernelEvent 144 Mistake</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-oppo-reno-8t-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Oppo Reno 8T Device</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-sierras-icloud-drive-essentials-for-seamless-workflows/"><u>[Updated] Sierra’s iCloud Drive Essentials for Seamless Workflows</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-essential-checklist-for-adding-videos-to-tweets/"><u>[Updated] The Essential Checklist for Adding Videos to Tweets</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95913236-9782268097602-edgar-cayce-guerir-par-la-musique/"><u>Edgar Cayce : guérir par la musique | Free Book</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/how-to-unite-diverse-video-objects-into-a-single-file-mastering-the-avs-synthesizer/"><u>How to Unite Diverse Video Objects Into a Single File: Mastering the AVS Synthesizer</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-honor-90-pro-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Honor 90 Pro Without PUK Codes</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-realme-narzo-60-pro-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Realme Narzo 60 Pro 5G Without PUK Codes</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-instant-illusions-mastering-time-lapse-photography-on-samsung/"><u>In 2024, Instant Illusions Mastering Time-Lapse Photography on Samsung</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-your-apple-iphone-11-pro-on-metropcs-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Your Apple iPhone 11 Pro on MetroPCS</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tips-and-tricks-to-tell-if-your-iphone-12-mini-is-unlocked-by-drfone-ios/"><u>In 2024, Tips And Tricks To Tell if Your iPhone 12 mini Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-motorola-moto-g-stylus-2023-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Motorola Moto G Stylus (2023) Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-oppo-a1-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Oppo A1 5G Phones</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-your-shorts-are-back-on-youtube/"><u>In 2024, Your Shorts Are Back on YouTube</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-samsung-galaxy-a15-5g-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Samsung Galaxy A15 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/revive-your-discord-voice-chat-solving-the-push-to-talk-malfunction/"><u>Revive Your Discord Voice Chat: Solving the Push-To-Talk Malfunction</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-z-fold-5-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy Z Fold 5 Phone Hassle-Free</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-instruction-overcoming-error-code-0x800f081f-on-your-net-framework-35-installations/"><u>Troubleshooting Instruction: Overcoming Error Code 0X800F081F on Your .NET Framework 3.5 Installations</u></a></li>
 </ul></div>
 
