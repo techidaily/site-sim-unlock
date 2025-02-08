@@ -1,7 +1,7 @@
 ---
 title: In 2024, What to do if your Apple iPhone 15 has bad ESN or blacklisted IMEI?
-date: 2024-09-18T20:18:00.071Z
-updated: 2024-09-23T20:58:30.869Z
+date: 2025-02-06T17:21:50.059Z
+updated: 2025-02-07T18:57:32.914Z
 tags: 
   - unlock
   - sim unlock
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/878905428de37ec37afcf7b8018e7d924bf2c1ca3
 ## What to do if your Apple iPhone 15 has bad ESN or blacklisted IMEI?
 
 Many people have iPhones but don’t know what an IMEI number is or what a bad ESN represents. Understanding how to tackle this issue can save time, money, and a headache or two. In this extensive guide, we’ll walk you through the basic mechanics of ESN and IMEI, how to check if your Apple iPhone 15 is blacklisted, and the detailed steps for unlocking a phone with a bad ESN or blacklisted IMEI.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Basic information about IMEI number and ESN
 
@@ -39,6 +43,10 @@ A Bad ESN can mean a lot of things, let’s check out some examples:
 3. The previous owner had an outstanding amount on their bill and cancelled the account without paying the bill first.
 4. The previous owner didn’t have a bill when they cancelled the account but they were still under a contract and if you cancel sooner than the due date for the contract, an "early termination fee" is created based on the remaining period of the contract and they hadn’t paid that amount.
 5. The person that sold you the phone or someone else who was the actual owner of the Apple iPhone 15 device reported the Apple iPhone 15 device as lost or stolen.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What is a blacklisted IMEI?
 
@@ -80,25 +88,11 @@ If you bought the Apple iPhone 15 device with the bad ESN newly from a retailer 
 
 ![iPhone blacklisted imei](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-5.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Use it as a gaming console or iPod
 
 Smartphones have a whole lot of functionality besides being able to place calls. You can install a bunch of different video games in it, you can use it to surf the internet, watch videos over YouTube, download music and videos to it. You could even use it as an iPod. The possibilities are really endless. You can even install apps like Skype and use Skype call as an alternative to a phone call.
 
 ![iPhone blacklisted imei](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Report of the Issue to the Police
 
@@ -116,24 +110,25 @@ The thing about a blacklisted IMEI is that it’s only blacklisted in a particul
 
 ![iPhone blacklisted imei](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Unlock it and then Sell it
 
 After your unlock your Apple iPhone 15 you can sell it to foreigners at a lowered rate. You can find out how to unlock in the next steps. But why would foreigners buy a blacklisted phone, you might ask? That’s because they won’t be on US soil long, and the IMEI is only blacklisted locally. So foreigners and tourists might be persuaded to buy your Apple iPhone 15 if you throw in a big enough discount.
 
 ![iPhone has bad esn](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-9.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Take it apart and sell the spare parts
 
 You can dismember the logic board, screen, dock connector and back casing, and sell them separately. These may be used to help out other broken iPhones.
 
 ![what if iPhone has bad esn](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Sell internationally
 
@@ -147,13 +142,6 @@ This is an ideal option for those who don’t mind changing carriers. You can fl
 
 ![bad esn iPhone 7](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-12_434.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Determine Hybrid GSM/CDMA Phones
 
 If your phone cannot activate on a CDMA carrier like Verizon or Sprint, the IMEI can still be used on a GSM network. Most phones manufactured these days come with a GSM standard nano or micro sim card slot and have GSM radio enabling for a GSM network. Most of them also come factory unlocked as well.
@@ -162,22 +150,13 @@ If your phone cannot activate on a CDMA carrier like Verizon or Sprint, the IMEI
 
 Having a phone with bad ESN or blacklisted IMEI is naturally a headache, however, all hope isn’t lost. You can do any of the things mentioned in the previous steps, and you can read on to find out how to unlock the phone with bad ESN or blacklisted IMEI.
 
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How to unlock a phone with bad ESN or blacklisted IMEI?
 
 Unlocking a phone with bad ESN or a blacklisted IMEI is not a single-step process. It involves both technological and legal maneuvering. It's important to note that unlocking a blacklisted phone might not make it fully operational, but it can help in using it with carriers outside the country where it was blacklisted.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Understanding Lock Status
 
@@ -239,6 +218,10 @@ Using a blacklisted phone can have various consequences. It's unlikely to work o
 
 It's generally not advisable to purchase a phone with a bad ESN or blacklisted IMEI, as it would be difficult to use on most networks. Such devices are often sold at lower prices, but the risks and limitations associated with them might not be worth the discount.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 In conclusion, a phone with a bad ESN or blacklisted IMEI presents a unique set of challenges. The complexity of resolving the issue hinges on various factors including the reasons for blacklisting, the phone model, and the networks involved, among others. The best approach is often a mix of legal recourse, communication with carriers, and potentially seeking the assistance of professional technicians or legal counsel. Always research thoroughly and seek advice from reliable sources when taking the significant step of unlocking a phone with a bad ESN or blacklisted IMEI.
@@ -283,23 +266,9 @@ Follow the steps below:
 
 ![try a sim card](https://images.wondershare.com/drfone/article/2022/12/unlock-iphone-se-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What are the prerequisites for an Apple iPhone 15 SIM lock?
 
 (Verizon/AT&T/T-Mobile as example)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to unlock the Apple iPhone 15 locked by Verizon
 
@@ -334,6 +303,10 @@ First, you should know that AT&T customers can only unlock a certain number of d
 - The AT&T passcode of the person whose name is on the account if that person has an online account.
 
 ![att](https://images.wondershare.com/drfone/article/2022/12/unlock-iphone-se-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to unlock the Apple iPhone 15 locked by T-Mobile
 
@@ -375,6 +348,10 @@ So, this site has been able to gain customers' trust by providing excellent unlo
 
 ![doctorsim](https://images.wondershare.com/drfone/article/2022/12/unlock-iphone-se-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Contact your carrier to unlock it with the IMEI code
 
 When a customer deals an agreement with a large cell phone company for a certain amount of time, they usually get a discount on a device. Because of this, the Apple iPhone 15 device has a controller lock, so customers can only use it on their network. You can leave without paying anything if your contract with the company is over. Before you can unlock your Apple iPhone 15, you have to do the following:
@@ -396,6 +373,10 @@ You have read the part about some ways to remove the SIM lock from Apple iPhone 
 **Step3:** Tap "Remove SIM Locked" in the following box to unlock your device's network.
 
 ![screen unlock](https://images.wondershare.com/drfone/guide/android-screen-unlock-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step4:** Tap "Start" as the beginning when your iOS device is prepared to be SIM unlocked.
 
@@ -437,13 +418,6 @@ Many people may wonder whether it is legal to unlock the iPhone. Actually, it is
 
 But if your Apple iPhone 15 has [bad ESN](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/) or been blacklisted by the carrier, you can check the new post here to check what to do if you have a [blacklisted iPhone](https://tools.techidaily.com/wondershare/drfone/iphone-unlock/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  Part 1: How to SIM Unlock Your Apple iPhone 15?
 
 There are several ways to unlock your device. Let's look at a few of them.
@@ -471,6 +445,10 @@ Like we mentioned before, there are a lot of services you can use to unlock your
 Step 1: On your browser, navigate to [iPhoneIMEI.net](https://appleiphoneunlock.uk/network/Special%20Services/Activation%20Lock?aff=wondershare) from the home page. Select your Apple iPhone 15 model and the network provider the phone is locked to. Then click on Unlock.
 
 ![sim unlock iphone with iphoneimei.net](https://images.wondershare.com/drfone/article/2024/03/apple-iphone-unlock.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 2: Next, you will be required to enter your IMEI number and get details of the price and how long it will take for the code to be generated. Click on “Unlock Now” and you will be sent to a payment page where you can complete the payment.
 
@@ -541,5 +519,20 @@ As we have seen above it is not that hard to unlock your device so go ahead and 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-vivid-visuals-brighten-on-android/"><u>[New] 2024 Approved Vivid Visuals Brighten on Android</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-master-the-digital-landscape-with-these-7-indispentic-devices/"><u>[New] Master the Digital Landscape with These 7 Indispentic Devices</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-palette-wisdom-essential-color-theory-explained/"><u>2024 Approved Palette Wisdom Essential Color Theory Explained</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-taking-control-the-hidden-tips-and-tricks-for-power-users-of-window-11/"><u>2024 Approved Taking Control The Hidden Tips and Tricks for Power Users of WINDOW 11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/convert-your-dvds-into-high-quality-mp4-files-using-any-windows-or-mac-os-the-top-10-methods/"><u>Convert Your DVDs Into High-Quality MP4 Files Using Any Windows or Mac OS - The Top 10 Methods</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-vivo-s18-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP on Vivo S18 Pro?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-vivo-v30-pro-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Vivo V30 Pro</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-top-mic-lists-tailored-for-high-definition-4k-cameras/"><u>In 2024, Top Mic Lists Tailored for High-Definition 4K Cameras</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-samsung-galaxy-a25-5g-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Samsung Galaxy A25 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-samsung-galaxy-f54-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Samsung Galaxy F54 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-ranking-of-highest-quality-wireless-range-boosters-for-the-year-2024/"><u>The Definitive Ranking of Highest Quality Wireless Range Boosters for the Year 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-boost-mobile-iphone-14-pro-max-before-the-plan-expires-by-drfone-ios/"><u>Unlock Your Boost Mobile iPhone 14 Pro Max Before the Plan Expires</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unveiling-the-top-6-head-mount-options-for-dynamic-camera-use/"><u>Unveiling the Top 6 Head Mount Options for Dynamic Camera Use</u></a></li>
+</ul></div>
 

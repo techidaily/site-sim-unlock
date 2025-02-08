@@ -1,7 +1,7 @@
 ---
 title: In 2024, What to do if your iPhone 15 Plus has bad ESN or blacklisted IMEI?
-date: 2024-09-12T16:46:34.980Z
-updated: 2024-09-18T21:17:31.426Z
+date: 2025-02-05T21:47:24.086Z
+updated: 2025-02-07T20:06:34.394Z
 tags: 
   - unlock
   - sim unlock
@@ -96,6 +96,10 @@ Depending on your carrier, you can see if they entertain requests to remove your
 
 ![iPhone has bad esn](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Swap the Logic Board
 
 The thing about a blacklisted IMEI is that it’s only blacklisted in a particular country. An unlocked AT&T iPhone blacklisted in the US would still function in Australia on another network. As such you can try and change the chips of your Apple iPhone 15 Plus. However, in doing so you should be prepared for some possible irreparable damage.
@@ -107,6 +111,10 @@ The thing about a blacklisted IMEI is that it’s only blacklisted in a particul
 After your unlock your Apple iPhone 15 Plus you can sell it to foreigners at a lowered rate. You can find out how to unlock in the next steps. But why would foreigners buy a blacklisted phone, you might ask? That’s because they won’t be on US soil long, and the IMEI is only blacklisted locally. So foreigners and tourists might be persuaded to buy your Apple iPhone 15 Plus if you throw in a big enough discount.
 
 ![iPhone has bad esn](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-9.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Take it apart and sell the spare parts
 
@@ -121,16 +129,7 @@ As mentioned earlier, you can unlock the phone with the blacklisted IMEI. Howeve
 ![iPhone bad esn](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-11.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Flash phone to another carrier
@@ -138,6 +137,10 @@ As mentioned earlier, you can unlock the phone with the blacklisted IMEI. Howeve
 This is an ideal option for those who don’t mind changing carriers. You can flash the phone to another carrier, as long as they accept it, and pretty soon you’ll have a functional phone! However, in some cases, you might land with a 3G connection instead of a 4G.
 
 ![bad esn iPhone 7](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-12_434.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Determine Hybrid GSM/CDMA Phones
 
@@ -235,13 +238,6 @@ Call any number from the Phone app or contact to display the “SIM Locked” po
 
 ![unlock iphone free](https://images.wondershare.com/drfone/article/2022/12/unlock-iphone-free-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Unlock your Apple iPhone 15 Plus SIM card via "Settings"
 
 The “Settings” app is another way to bring up the unlock notification. Go to the “Cellular” tab and choose “SIM PIN” as the last option. The SIM card should now ask you to unlock your Apple iPhone 15 Plus.
@@ -249,10 +245,7 @@ The “Settings” app is another way to bring up the unlock notification. Go to
 ![unlock iphone for free](https://images.wondershare.com/drfone/article/2022/12/unlock-iphone-free-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Unlock it via IMEI code
@@ -268,22 +261,12 @@ If you meet the above conditions, you can get the phone unlocked from your carri
 ![contact carrier](https://images.wondershare.com/drfone/article/2022/12/unlock-iphone-free-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus Tip: Efficient App for iPhone SIM Unlock
 
 Do you want to solve your problem on your Apple iPhone 15 Plus or Android devices? And you have no professional skills? So, you should never miss Dr.Fone. And Screen-Unlock is a highly efficient tool to **remove the SIM-lock on your Apple iPhone 15 Plus**.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Dr.Fone - Screen Unlock
 
@@ -293,9 +276,18 @@ Unlock iPhone Carrier Simply and Quickly
 - Save your Apple iPhone 15 Plus quickly from the disabled state.
 - Free your sim out of any carrier worldwide.![New icon](https://images.wondershare.com/drfone/others/new_23.png)
 - Bypass iCloud activation lock and enjoy all iCloud services
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 - Works for all models of iPhone, iPad, and iPod touch.
 
 **4,008,669** people have downloaded it
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Unlock Your Apple iPhone 15 Plus for Any Carrier with Dr.Fone - Screen Unlock (iOS)?
 
@@ -383,6 +375,10 @@ Here's a little screenshot for you:
 
 ![unlock verizon iphone](https://images.wondershare.com/drfone/article/2016/10/14772244563743.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: How to check your Verizon iPhone unlock status
 
 If you're not sure whether you're still within the 2 year contract period or aren't sure whether your phone model is eligible for automatic unlock, then you can simply verify that via DoctorSIM with an easy 3-step process. You should avail of this before going through any official channels to unlock Verizon iPhone 5. All you have to do is go to this link [here](https://www.doctorsim.com/libtrkafl.html?pc=43d47c30d945bcbd7d9527f4049f649a&refe=https://www.doctorsim.com/us-en/?scp&euro) and then follow the given steps.
@@ -390,6 +386,10 @@ If you're not sure whether you're still within the 2 year contract period or are
 ### Check your Verizon iPhone unlock status
 
 ![check your Verizon iPhone unlock status](https://images.wondershare.com/drfone/sim-unlock/iphone_step1.png)![check Verizon iPhone unlock status](https://images.wondershare.com/drfone/sim-unlock/iphone_step2.png)![how to check Verizon iPhone unlock status](https://images.wondershare.com/drfone/sim-unlock/iphone_step3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **Step 1:** Retrieve IMEI Code
 
@@ -419,5 +419,22 @@ However, if you use a third party service like DoctorSIM - SIM Unlock Service th
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-capture-and-amplify-no-cost-digital-picture-upgrades/"><u>[New] In 2024, Capture & Amplify - No Cost Digital Picture Upgrades</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-legends-of-arcade-combat-nintendos-top-ten-on-switch/"><u>[New] In 2024, Legends of Arcade Combat Nintendo's Top Ten on Switch</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-stream-like-a-pro-fb-live-tips-2023/"><u>[New] In 2024, Stream Like a Pro FB Live Tips 2023</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-expert-tips-download-youtube-playlists-in-minutes/"><u>[Updated] In 2024, Expert Tips Download YouTube Playlists in Minutes</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-honor-x50i-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Honor X50i FRP In 3 Different Ways</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-all-about-iphone-13-pro-max-unlock-chip-you-need-to-know-by-drfone-ios/"><u>In 2024, All About iPhone 13 Pro Max Unlock Chip You Need to Know</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-oppo-reno-10-pro-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Oppo Reno 10 Pro 5G Phones with/without a PC</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-nokia-g42-5g-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Nokia G42 5G Is Unlocked</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Motorola G24 Power? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-itel-s23-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Itel S23 Phone? Unlock It Now</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-oppo-a1-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Oppo A1 5G Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-huawei-nova-y71-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Huawei Nova Y71 IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-video-editing-for-beginners-a-microsoft-guide-for-windows-users/"><u>Updated In 2024, Video Editing for Beginners A Microsoft Guide for Windows Users</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-vivo-s18-pro-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Vivo S18 Pro Device</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/windows-10-disk-recovery-wizard-rejuvenate-your-computer/"><u>Windows 10 Disk Recovery Wizard: Rejuvenate Your Computer</u></a></li>
+</ul></div>
 

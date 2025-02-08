@@ -1,7 +1,7 @@
 ---
 title: What to do if your iPhone 15 has bad ESN or blacklisted IMEI?
-date: 2024-09-16T23:25:48.446Z
-updated: 2024-09-23T22:26:56.643Z
+date: 2025-01-31T20:19:45.899Z
+updated: 2025-02-07T16:59:30.107Z
 tags: 
   - unlock
   - sim unlock
@@ -26,16 +26,13 @@ IMEI (International Mobile Equipment Identity): IMEI numbers are unique to GSM (
 
 ![iPhone imei number check](https://images.wondershare.com/drfone/others/iphone-imei-check.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What is an ESN?
 
 Electronic Serial Number (ESN): Previously utilized by CDMA (Code Division Multiple Access) networks, an ESN was a unique identifier for cellular devices. With technological progression, most carriers have shifted their focus to the IMEI system, but knowing your ESN’s history is still crucial, especially if you're dealing with older devices.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What is a Bad ESN?
 
@@ -61,6 +58,10 @@ Blacklisted IMEI is basically the same thing as Bad ESN but for devices that wor
 
 In order to check if an iPhone is blacklisted, you need to first [retrieve your IMEI](https://drfone.wondershare.com/unlock/imei-check-iphone.html) or ESN number to check if it’s blacklisted.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to find the IMEI or ESN numbers
 
 1. On the original box of the iPhone, usually around the barcode.
@@ -80,13 +81,6 @@ Checking if your Apple iPhone 15 has a blacklisted IMEI is the first step in add
 ## Part 3: What to do if your Apple iPhone 15 has bad ESN or blacklisted IMEI?
 
 A bad ESN or blacklisted IMEI is serious business. It can result in a device being unusable on most of the surrounding networks. If your IMEI is blacklisted, there are steps for potential resolution:
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ask the seller for a refund
 
@@ -110,6 +104,10 @@ Depending on your carrier, you can see if they entertain requests to remove your
 
 ![iPhone has bad esn](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Swap the Logic Board
 
 The thing about a blacklisted IMEI is that it’s only blacklisted in a particular country. An unlocked AT&T iPhone blacklisted in the US would still function in Australia on another network. As such you can try and change the chips of your Apple iPhone 15. However, in doing so you should be prepared for some possible irreparable damage.
@@ -121,20 +119,6 @@ The thing about a blacklisted IMEI is that it’s only blacklisted in a particul
 After your unlock your Apple iPhone 15 you can sell it to foreigners at a lowered rate. You can find out how to unlock in the next steps. But why would foreigners buy a blacklisted phone, you might ask? That’s because they won’t be on US soil long, and the IMEI is only blacklisted locally. So foreigners and tourists might be persuaded to buy your Apple iPhone 15 if you throw in a big enough discount.
 
 ![iPhone has bad esn](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-9.gif)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Take it apart and sell the spare parts
 
@@ -148,24 +132,25 @@ As mentioned earlier, you can unlock the phone with the blacklisted IMEI. Howeve
 
 ![iPhone bad esn](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Flash phone to another carrier
 
 This is an ideal option for those who don’t mind changing carriers. You can flash the phone to another carrier, as long as they accept it, and pretty soon you’ll have a functional phone! However, in some cases, you might land with a 3G connection instead of a 4G.
 
 ![bad esn iPhone 7](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-12_434.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Determine Hybrid GSM/CDMA Phones
 
 If your phone cannot activate on a CDMA carrier like Verizon or Sprint, the IMEI can still be used on a GSM network. Most phones manufactured these days come with a GSM standard nano or micro sim card slot and have GSM radio enabling for a GSM network. Most of them also come factory unlocked as well.
 
 ![iPhone 6s bad esn](https://images.wondershare.com/drfone/others/10-things-you-can-do-with-an-iphone-that-has-bad-esn-or-blacklisted-iemi-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Having a phone with bad ESN or blacklisted IMEI is naturally a headache, however, all hope isn’t lost. You can do any of the things mentioned in the previous steps, and you can read on to find out how to unlock the phone with bad ESN or blacklisted IMEI.
 
@@ -176,13 +161,6 @@ Unlocking a phone with bad ESN or a blacklisted IMEI is not a single-step proces
 ### Understanding Lock Status
 
 Before proceeding, ensure you understand the lock status of your phone. If the phone is network locked, it only works with a specific carrier. If it is blacklisted, it’s barred from most network use. An unlocked phone, on the other hand, is a blank slate ready to work with any carrier that supports the Apple iPhone 15 device's technological specifications.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Steps to Unlock
 
@@ -211,6 +189,10 @@ This information is anonymous to carriers and no one will be able to tell you ex
 You will need to check the IMEI or ESN.
 
 ![iphone imei check](https://images.wondershare.com/drfone/others/iphone-imei-check.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **Q: I am the owner of the Apple iPhone 15 and I reported it as lost some time ago and I found it, can I cancel it?**
 
@@ -271,6 +253,10 @@ Apple has added a new section to iOS 14 called Network Provider Lock that immedi
 Scroll down until it immediately tells you the Apple iPhone 15 device's status section. "No SIM restrictions" should appear on the screen if the Apple iPhone 15 is unlocked. Seeing something else means that the Apple iPhone 15 is locked.
 
 ![network provider lock](https://images.wondershare.com/drfone/article/2022/12/unlock-iphone-se-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Try a SIM card from another carrier
 
@@ -370,6 +356,10 @@ First, it has to be legal. It means the Apple iPhone 15 device has not been repo
 
 Then your bank account shouldn't have any debts. If you signed a contract in exchange for a lower price upfront, you would have to wait until your contract was up (usually 24 months) or pay the remaining balance if you bought your phone on a payment plan. Each company has its way of unlocking.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Dr.Fone - Screen Unlock (iOS)
 
 You have read the part about some ways to remove the SIM lock from Apple iPhone 15. If they are too complicated, you have another chance. Dr.Fone-Screen Unlock provides a direct method to unlock your SIM card.
@@ -379,19 +369,6 @@ You have read the part about some ways to remove the SIM lock from Apple iPhone 
 **Step2:** In the main interface of Dr.Fone, please go for "Screen Unlock."
 
 ![drfone](https://images.wondershare.com/drfone/guide/drfone-home.png)
-
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step3:** Tap "Remove SIM Locked" in the following box to unlock your device's network.
 
@@ -404,6 +381,10 @@ You have read the part about some ways to remove the SIM lock from Apple iPhone 
 **Step5:** When the Apple iPhone 15 is connected, the software detects it and displays a list of details. Verify all shown parts are in place before clicking "Unlock Now."
 
 ![quickly remove](https://images.wondershare.com/drfone/guide/remove-iphone-sim-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step6:** Jailbreaking your Apple iPhone 15 is required before proceeding with the process. This approach is compatible with iPhones 5S and up running iOS versions 12.0 to 14.8.1. Therefore, in order to learn about technology, you must either read the manual or watch the video.
 
@@ -420,13 +401,6 @@ You have read the part about some ways to remove the SIM lock from Apple iPhone 
 **Step9:** The device can now be used without any limitations imposed by the SIM carrier because it has been unlocked. To unlock the SIM card on your iOS device, tap the "Done" button.
 
 ![iphone se unlocked verizon](https://images.wondershare.com/drfone/guide/remove-iphone-sim-7.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### The Bottom Line
 
@@ -532,6 +506,10 @@ With the SIM-unlock feature in Dr.Fone, the unlocking process will be much easie
 
 ![jailbreak](https://images.wondershare.com/drfone/guide/remove-iphone-sim-4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step7:** In the next image, you need to do 3 small tasks on your Apple iPhone 15. Take out the SIM card and go to "Settings" on the Apple iPhone 15 device. Go to the "WLAN" category and tap "Forget This Network" on every connection you've made. Now you should turn "WLAN" off your iOS device and insert the SIM card again. To continue the process, click "Continue" on the screen.
 
 ![sim card](https://images.wondershare.com/drfone/guide/remove-iphone-sim-5.png)
@@ -572,5 +550,26 @@ So you can easily eliminate the carrier locked issue of your Apple iPhone 15. Un
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-essential-5-book-trailer-selections/"><u>[New] 2024 Approved Essential 5 Book Trailer Selections</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-aiming-for-the-stars-select-7-top-shooter-experiences/"><u>[Updated] In 2024, Aiming for the Stars Select 7 Top Shooter Experiences</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-channel-appeal-with-free-professional-banner-designs/"><u>2024 Approved Enhance Channel Appeal with Free, Professional Banner Designs</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-xiaomi-civi-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723009240635-elevation-keeping-the-injured-body-part-elevated-above-heart-level-when-possible-encourages-fluid-drainage-and-reduces-edema-swelling/"><u>Elevation: Keeping the Injured Body Part Elevated Above Heart Level, when Possible, Encourages Fluid Drainage and Reduces Edema (Swelling).</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-verizon-iphone-xs-max-by-drfone-ios/"><u>How to Unlock Verizon iPhone XS Max</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-remove-iphone-6s-sim-lock-by-drfone-ios/"><u>In 2024, How to Remove iPhone 6s SIM Lock?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-oppo-reno-10-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Oppo Reno 10 5G Without PUK Codes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-realme-12-5g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Realme 12 5G Device</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-sony-xperia-10-v-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Sony Xperia 10 V Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-vivo-x100-pro-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Vivo X100 Pro IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-apple-iphone-12-pro-max-in-minutes-with-iccid-code-everything-you-need-to-know-by-drfone-ios/"><u>In 2024, Unlock Your Apple iPhone 12 Pro Max in Minutes with ICCID Code Everything You Need to Know</u></a></li>
+<li><a href="https://techtrends.techidaily.com/retweets-and-re-tweets-demystified-clarifying-social-media-lingo/"><u>Retweets & Re-Tweets Demystified: Clarifying Social Media Lingo</u></a></li>
+<li><a href="https://network-issues.techidaily.com/screen-upside-down-in-windows-10-fixed/"><u>Screen Upside Down in Windows 10 [Fixed]</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-oppo-a18-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Oppo A18 Device</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-oppo-find-x6-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Oppo Find X6 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://discover-data.techidaily.com/yang-hengjun-australian-author-and-speaker-at-risk-of-death-from-kidney-condition-in-beijing-jail-advocates-demand-healthcare-access/"><u>Yang Hengjun: Australian Author and Speaker at Risk of Death From Kidney Condition in Beijing Jail, Advocates Demand Healthcare Access</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-itel-p55-5g-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Itel P55 5G | Dr.fone</u></a></li>
+</ul></div>
 
